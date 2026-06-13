@@ -1,0 +1,3765 @@
+## Policy & Regulations
+
+Policy & Regulations
+
+* Policy & Regulations
+* Request Transcripts & Certifications
+* Class Schedule & Course Registration
+* Transfer Credit
+* Exams & Grades
+* Program Change
+* Time Away from VinUni: Leave, Withdraw, Return
+* Graduation
+* Forms & Petitions
+
+###
+
+### Policies & Academic Regulations for VinUniversity students
+
+This section provides all key policies and regulations that guide your academic life at VinUni. We’ve gathered all student-related policies in one place for easy access.
+
+#### Key Student Policies:
+
+Below is the list of policies you may need throughout your studies. Click to view the full policy document:
+
+**1. Academic Regulations for Full-time Undergraduate Programs**  
+Defines the structure, credit system, grading scale, progression rules, academic standing, and graduation requirements for all full-time undergraduate students.  
+Read more
+
+**2. Academic Regulations for Master’s Program**Outlines the academic framework, credit and grading system, progression requirements, and graduation criteria applicable to all full-time Master’s students at VinUni.  
+Read more
+
+**3. Academic Regulations for Doctoral Degree Program**  
+Provides guidelines on program structure, research milestones, supervision, academic progression, and degree completion requirements for doctoral students.  
+Read more
+
+**4. Academic Regulations for Graduate Medical Education (GME)**  
+Specifies academic policies, clinical training requirements, evaluation methods, and graduation standards for residents enrolled in VinUni’s Graduate Medical Education programs.  
+Read more
+
+**5. Academic Catalogs**  
+Comprehensive reference documents outlining course offerings, program structures, credit requirements, and academic policies for each academic year.  
+Read more
+
+**6. VinCore Curriculum Framework**  
+Defines the core curriculum for undergraduates (from Cohort 2024), combining academic courses and co-curricular activities to foster character, career readiness, and global citizenship.  
+Read more
+
+**7. English Language Requirements for Undergraduate Admissions**  
+Establishes the minimum English proficiency standards for applicants to full-time undergraduate programs at VinUni.  
+Read more
+
+**8. Vietnamese Language Program Guidelines for International Students**  
+Defines the required Vietnamese language training structure and proficiency outcomes for international students in VinUni’s MD and BN programs in the College of Health Sciences (from the 2025–2026 cohort), including general and medical Vietnamese courses.  
+Read more
+
+**9 . English Language Proficiency Requirements for Graduation at VinUniversity**  
+Sets the mandatory English proficiency standards that all undergraduate and graduate students must meet before being eligible to receive a degree.  
+Read more
+
+**10. Procedural Guidelines for Credit Transfer Requests**  
+Defines the formal process and eligibility criteria for undergraduate students requesting transfer of academic credits earned externally to VinUni.  
+Read more
+
+**11. Outbound Student Exchange Procedure**  
+Details the eligibility, application steps, credit mapping, and responsibilities for VinUni students who wish to study abroad through the outbound exchange program, whether via VinUni partnership or self-arranged options.  
+Read more
+
+**12. Declaration of Individually Designed Concentration and Minor**  
+Guidelines allowing eligible undergraduate students at VinUniversity to create a personalized concentration or minor by combining existing VinUni courses, subject to criteria, advisor support, and formal approval.  
+Read more
+
+**13. Guideline for Program Change Request**  
+Provides policies, eligibility criteria, timelines, and step-by-step procedures for students wishing to change their major, degree, or college at VinUniversity, with required approvals and administrative steps.  
+Read more
+
+**14. Student Grade Appeal Procedure**  
+Transparent and equitable process for appealing a final course grade.  
+Read more
+
+**15. Procedure for Requesting a Leave of Absence, Withdrawal and Return from a Leave of Absence**  
+Provide a clear and fair process for students who need a temporary break (LOA), permanent withdrawal, or re-entry into their academic program at VinUniversity.  
+Read more
+
+**16. Criteria to Maintain the Entry Scholarship and Financial Aid Support**  
+Applies to all full‑time undergraduate students receiving merit-based scholarships or financial aid at VinUni.  
+Read more
+
+**17. Student Academic Integrity**  
+Defines expectations for honesty and responsibility in all academic work, outlines types of violations (e.g., cheating, plagiarism, fabrication, collusion), and describes the tiered consequences from warnings up to suspension or dismissal.  
+Read more
+
+**18. Guidelines for Thesis and Dissertation Submission**  
+Outlines the formatting, submission process, deadlines, and public access policies for Master’s theses and Doctoral dissertations at VinUniversity.  
+Read more
+
+**19. Procedure for Undergraduate Graduation Review and Degree Conferral at VinUniversity**  
+Standardizes the yearly graduation eligibility checks, degree conferral steps, timeline, and diploma issuance process for all full‑time undergraduate students.  
+Read more
+
+**20. VinUni Graduation Diploma Templates**  
+Defines and standardizes the formal diploma templates used for Bachelor’s, Master’s, Doctoral, and Medical Doctor degrees, fully compliant with Vietnamese Ministry of Education regulations (Circular 21/2019 and 27/2019), approved via Decision No. 262/2024/QĐ‑VUNI by the Provost.  
+Read more
+
+**Looking for something specific?**
+
+* Check the complete VinUni Policy Handbook.
+* Use the search bar to find policy keywords.
+
+## Request Transcripts & Certifications
+
+Request Transcripts & Certifications
+
+### Request Transcripts & Certifications
+
+Whether you are a current student or a graduate, the Registrar’s Office can support your academic journey by providing official documents such as transcripts, certification letters, and confirmation of graduation.  
+These documents can be used for a variety of purposes – further study, job applications, visa processing, scholarship or financial aid renewal, or external verification.
+
+#### Available Documents:
+
+Here’s a quick overview of the documents you can request and how they’re typically used:
+
+- Document Type. What it confirms. Language. Format. Notes.
+- Official Transcript (TNR). Full list of courses taken, credits earned, grades, and cumulative GPA. English only. PDF or hard copy. For current students or alumni. Includes all official academic records..
+- Enrollment Certification Letter (ENR). That you are currently enrolled in a specific program at VinUni. Bilingual (English – Vietnamese). PDF or hard copy. May include your expected graduation date upon request..
+- Letter of Recommendation (RCM). Shows official university support for your participation in an external program such as student exchange or internship, with confirmation that you will return to VinUni to continue your studies. English (bilingual upon request). PDF or hard copy. Must include details of the program/internship (e.g. hosting institution, address, duration, sponsorship or scholarship information)..
+- English Proficiency Confirmation Letter (ENG). That your program of study is conducted in English. English (bilingual upon request). PDF or hard copy. May include English-medium instruction and institutional endorsement..
+- Graduation Confirmation Letter (GRD). That you have fulfilled all graduation requirements. English (bilingual upon request). PDF or hard copy. Issued only after degree conferral eligibility is confirmed..
+- Current Semester Course List (CRS). Courses you are officially enrolled in for the current semester. English (bilingual upon request). PDF or hard copy. Useful for visa extensions, internships, or external verification..
+
+Note: All letters are issued based on your official academic record. Make sure your academic information is up to date before placing a request.
+
+#### How to Request
+
+**Step 1: Fill in the Online Request Form**  
+Click the button below to start your request. You will be asked to select the document type, language, format (digital/hardcopy), number of copies, and recipient details.  
+ Student Document Request Form  
+**Step 2: Wait for Processing**
+
+* **Standard processing time**: 2–3 working days
+* **Peak periods**: Up to 5 working days
+* You will receive an email once your documents are ready.
+
+**Step 3: Receive Your Document**
+
+* **Digital format**: Sent to your VinUni email or a verified recipient’s email
+* **Hardcopy**: Available for pickup at the Registrar’s Office (or shipping upon request)
+
+#### Cost & Delivery
+
+- Item. Fee. Notes.
+- Each document (all types). 50,000 VND / copy. Applies to all standard documents: transcripts, certifications, letters.
+- Local pickup. Free. Collect at Registrar’s Office during working hours.
+- Local shipping (within Vietnam). Free. Via standard post or internal courier.
+- International shipping. Paid by student. Sent via express courier. Student will receive a billing notice from the Administration Office before shipping..
+
+#### Important Notes
+
+* Please double-check your Student ID, email address, and recipient details before submitting your request.
+* Incomplete or incorrect information may delay processing.
+* Unofficial transcripts are available for download on your Student Portal and cannot be certified.
+* All requests must be submitted via the official online form. We do not accept requests through phone, chat apps, or social media.
+* If you have not met all graduation requirements, only a Letter of Expected Graduation can be issued.
+* During peak periods (e.g. graduation review, application deadlines), please allow extra time for processing.
+* For international shipping, ensure your address is accurate and complete. The Registrar’s Office is not responsible for delays due to incorrect or incomplete recipient details.
+* For international delivery, documents will be shipped first, and the student is obligated to fully settle the delivery cost after receiving the billing notice from the Administration Office. Non-
+* payment may result in a hold on future service requests.
+* If someone will collect your document on your behalf, please send an email to registrar@vinuni.edu.vn in advance with:
+  + Your full name and Student ID
+  + Name and ID/passport number of the authorized person
+  + The specific document to be collected
+
+#### 💬 Still Have Questions?
+
+If you’re not sure which document suits your needs, or have a special request (e.g. notarized copy, embassy format, urgent processing), don’t hesitate to reach out. We’re here to help.  
+ Email us at: registrar@vinuni.edu.vn  
+ Visit us: Room I114, 1st Floor, Building I, VinUniversity  
+ Call: 024 71089779 – ext.: 9004
+
+## Transfer Credit
+
+Transfer Credit
+
+### Transfer Credits
+
+If you have previously completed courses at other accredited institutions — whether through formal university study, an approved exchange program, or advanced standing exams (such as AP, IB, A-Levels) — you may be eligible to transfer credits toward your VinUni degree.
+
+#### When to Submit a Transfer Credit Request
+
+* New students: Submit your request during Orientation Week or no later than the last day of the Add period for your first semester.
+* Current students: Submit your request during the Add period of the semester in which the equivalent VinUni course would normally be taken.
+
+Note: Transfer credit requests will not be accepted after the Add deadline of the respective semester.
+
+#### How to Submit a Request
+
+All requests must be sent via email to the Registrar’s Office at registrar@vinuni.edu.vn and include the following:
+
+1. A completed Transfer Credit Request Form (Click here to download)
+2. An official transcript from the external institution
+3. A course syllabus or outline including topics, assessments, and learning outcomes
+4. Details of the credit system used (e.g., ECTS, US credit hour)
+
+#### What Courses Are Eligible for Transfer?
+
+VinUni will consider transfer credit if the course:
+
+* Was taken at an accredited institution
+* Has content equivalent to at least 70% of the VinUni course
+* Was completed with a minimum grade of C or equivalent
+* Has comparable credit value to a VinUni course
+* Has not been used toward another completed degree
+
+#### High School Advanced Exams
+
+Students may be eligible to receive transfer credits for high performance in recognized high school exams:
+
+* Advanced Placement (AP)
+* International Baccalaureate (IB)
+* A-Level Exams
+
+Eligibility and equivalency decisions are made by the relevant College based on score thresholds and subject relevance.
+
+#### Key Notes
+
+* A maximum of 60 credits can be transferred toward a VinUni undergraduate degree
+* Transfer credits are shown with a “T” grade and do not count toward GPA
+* Approval decisions typically take up to 2 weeks from submission
+
+#### Related Policies
+
+For full regulations, please consult the following:
+
+* Credit Transfer Requests – Procedures & Criteria  
+  Covers the step-by-step process and requirements for transferring academic credit.
+* Course Exchange, Transfer Credit from Exchange, and Other Academic Options  
+  Provides additional information for exchange students, proficiency exams, and special cases.
+
+#### 📞 Need Support?
+
+Email: registrar@vinuni.edu.vn  
+Phone: +84 – 2471 089 779 (ext: 9004)  
+Visit: Room I114, 1st Floor, Building I  
+We’re here to help you make the most of your academic experience!
+
+## Exams & Grades
+
+Exams & Grades
+
+### Exams & Grades
+
+Stay informed about VinUni’s academic assessment process, from exam procedures to the grading system and appeals.
+
+#### Exams at VinUni
+
+Examinations may take the form of written tests, online quizzes, oral assessments, presentations, or take-home assignments. The format and timing are determined by the instructor and detailed in the course syllabus.
+
+* Exam Schedule: Exam dates are NOT published on SIS. Teaching teams will communicate directly with students about the exam schedule during the semester.
+* Academic Integrity: Students must adhere to VinUni’s academic integrity policy during all assessments. Violations may lead to disciplinary actions.
+
+Student Academic Integrity Policy
+
+#### Understanding Your Grades
+
+**Grade System**
+
+VinUni uses a letter grading system on a 4.0 GPA scale, as shown below:
+
+- Grade Letter. 4-point scale.
+- A. 4.0.
+- A-. 3.7.
+- B+. 3.3.
+- B. 3.0.
+- B-. 2.7.
+- C+. 2.3.
+- C. 2.0.
+- C-. 1.7.
+- D+. 1.3.
+- D. 1.0.
+- D-. 0.7.
+- F. 0.0.
+
+Some special grade notations include:
+
+* W – Withdrawn
+* I – Incomplete
+* T – Transfer credit (not counted in GPA)
+* P/F – Pass/Fail (for select courses)
+
+#### GPA Calculation
+
+Your Grade Point Average (GPA) is calculated by multiplying each course’s credit value by the grade point value, then dividing the total grade points by the total number of credits attempted (excluding Pass/Fail or Transfer grades).
+
+#### 📞 Need Help?
+
+Email: registrar@vinuni.edu.vn  
+Phone: +84 – 2471 089 779 (ext: 9004)  
+Office: Room I114, 1st Floor, Building I  
+Hours: 8:30 AM – 5:30 PM on working days  
+Feel free to contact us with any questions regarding grades, transcripts, or academic standing!
+
+## Program Change
+
+Program Change
+
+### Program Change & Institutional Transfer
+
+This page explains how you can request a change in your academic program at VinUni or transfer to another university.
+
+- Criteria. Program Change (Internal). Institutional Transfer (External).
+- Scope of Change. Change major, degree, or college within VinUni. Transfer to a different university.
+- Types of Changes. * Change of Major/Minor/Concentration * Change of Degree * Change of College. Transfer to another university offering the same or related program.
+- Eligibility. * Not in 1st or final year (for degree/college change) * Meet new program’s admission criteria * Not under suspension or disciplinary action. * Meet admission requirements of receiving university * Not in 1st or final year * Not under disciplinary warning.
+- Frequency. Max 1 program change per academic year. Based on approval; no fixed frequency.
+- Approval Required. * Program Director * Dean/Vice Dean * Registrar * Provost. – Registrar  – Program Director  – Dean/Vice Dean  – Provost (VinUni & receiving university).
+- Timeline. Processed once per semester, effective next semester. Based on timeline of both institutions.
+- Credit Transfer. Previously transferred credits may be re-assessed. Receiving university will determine credit recognition.
+- Document Submission. Internal form & supporting docs via email. Complete transfer request package submitted to Registrar.
+- Policy Links. Academic Regulations for Full-Time Undergraduate Programs – VinUni Policy (Article 20: Program Change and Institutional Transfer).
+
+#### 💬 Need Help?
+
+Changing programs or transferring universities is a major decision. If you’re unsure where to start, feel free to reach out for advice:
+
+* Email: registrar@vinuni.edu.vn
+* Office: Room I114, 1st Floor, Building I
+* Phone: +84 – 2471 089 779 (ext. 9004)
+
+We’re here to support your academic journey — every step of the way.
+
+## Time Away from VinUni: Leave, Withdraw, Return
+
+Time Away from VinUni: Leave, Withdraw, Return
+
+### Time Away from VinUni: Leave, Withdraw, Return
+
+This page outlines the official types of time away from study at VinUniversity, including planned leave of absence, withdrawal, and returning to study.
+
+### Types of Time Away
+
+- Type. Purpose / Situation. Key Notes.
+- Planned Leave of Absence. Temporary break due to personal reasons, family circumstances, health, or study abroad. Student intends to return to VinUni.. * Maximum 3 consecutive semesters (including Summer). * Total leave time: up to 6 semesters throughout the program..
+- Withdrawal. Student formally exits the program and does not plan to return.. Must submit a withdrawal request form. Once approved, the student loses student status..
+- Involuntary Leave. Leave required due to academic suspension, disciplinary action, or serious health reasons.. Initiated by the University. Student must comply with return conditions..
+
+#### Procedure & Eligibility
+
+* Submit a formal request via email to the Registrar’s Office.
+* Request must be reviewed and approved by:
+  + Academic Advisor or Program Director
+  + Student Affairs (for health/psychological reasons)
+  + University leadership (for special cases)
+
+#### Returning to Study
+
+- Scenario. Conditions for Returning.
+- Approved Leave of Absence. * Submit return request at least 1 month before the new semester begins. * May be subject to review or interview if away for a long time..
+- Withdrew and wants to return. * Must reapply as a new student through the Admissions Office. * Previous credits may be re-evaluated..
+- Suspension or Involuntary Leave. Must fulfill all return conditions outlined in the official decision..
+
+* During leave or withdrawal, students do not have access to academic services, systems, or library privileges.
+* Time away is only recognized if officially approved; unapproved absence counts against your maximum study duration.
+* Students are responsible for staying informed and initiating the return process.
+
+Email: registrar@vinuni.edu.vn  
+Phone: +84 – 2471 089 779 (ext. 9004)  
+Office: Room I114, 1st Floor, Building I  
+Office Hours: Monday – Friday | 08:30 – 17:30 (GMT+7)
+
+## Graduation
+
+Graduation
+
+### Graduation
+
+This page provides essential information about graduation eligibility, the review process, and degree classification at VinUni. Please plan ahead to ensure you meet all requirements on time.
+
+#### Graduation Eligibility Criteria
+
+To be awarded a bachelor’s degree from VinUniversity, students must meet all the following conditions:
+
+* Complete the minimum credit requirement within the designated study period of the program.
+* Fulfill General Education/VinCore and English language proficiency requirements.
+* Complete all major-specific course requirements defined by your College.
+* Resolve any “I – Incomplete” grades for required courses.
+* Earn a minimum cumulative GPA of 2.00/4.00.
+* Not be found guilty of any criminal offense up to the time of graduation.
+* Satisfy all other applicable University requirements and regulations.
+
+If a student fails to meet all graduation conditions during their intended semester, they must re-apply in a future graduation review period.
+
+#### Graduation Timeline & Process
+
+* Application for Graduation: Students are invited to submit their graduation application around April each academic year.
+* Final Semester Planning: Students should prioritize required courses in their last semester and reserve time for their Capstone Project or Thesis.
+* Graduation Review: Final reviews and decisions typically take place in August.
+* Degree Conferral & Diploma: Diplomas are usually issued in September after the printing and verification process.
+
+#### What Happens After Graduation Review?
+
+Once your graduation eligibility is confirmed by the Graduation Review Board:
+
+* You may request a Graduation Confirmation Letter for use in school applications or visa purposes.
+* After the official Graduation Decision is issued by the Provost, you will be eligible to receive a Provisional Degree Certificate.
+* The official diploma and final transcript will be available approximately one month after the decision, once printing and verification are complete.
+
+Students are encouraged to plan ahead if they need documents for deadlines related to jobs, graduate study, or international travel.
+
+#### Classification of Awards
+
+VinUni awards bachelor’s degrees based on final GPA, according to Ministry of Education and Training (MOET) regulations.
+
+- Classification. Cumulative GPA.
+- Excellent. 3.60 – 4.00.
+- Very Good. 3.20 – 3.59.
+- Good. 2.50 – 3.19.
+- Marginal. 2.00 – 2.49.
+
+#### Graduation Review Board
+
+The Graduation Review Board is chaired by the Provost (or designee), with members including:
+
+* Vice Provost of Academic Affairs
+* Vice Provost of Academic Administration
+* Dean/Vice Dean/Program Directors of Colleges
+* Registrar’s Office
+* Student Affairs Management
+
+The Board makes recommendations on student eligibility for graduation, and the Provost signs the final decision.
+
+Academic Regulations for Full-Time Undergraduate Programs – VinUni Policy: Chapter V Conferral of Awards and Graduation  
+Procedure for Undergraduate Graduation Review and Degree Conferral at VinUniversity – VinUni Policy  
+English Language Proficiency Requirements For Graduation At VinUniversity – VinUni Policy
+
+#### 📩 Need Support?
+
+Email: registrar@vinuni.edu.vn  
+Phone: +84 – 2471 089 779 (ext. 9004)  
+Office: Room I114, 1st Floor, Building I  
+Office Hours: Monday – Friday | 08:30 – 17:30 (GMT+7)  
+Let us know if you need help with graduation requirements, academic records, or diploma collection.
+
+## Forms & Petitions
+
+Forms & Petitions
+
+### Forms & Petitions
+
+This page provides quick access to commonly used forms related to academic procedures, course registration, and student records at VinUniversity. Please read the instructions carefully before submitting.
+
+#### Official Documents
+
+- Purpose. Form. Submission Method.
+- Transcript / Degree Certificate / Confirmation Letters / English Proficiency Certification Letter. Student Document Request Form. Fill in online form using VinUni email.
+
+#### Academic Requests
+
+- Purpose. Form. Submission Method.
+- Course Registration (Retake / Audit / Individual Study). N/A. Submit request via email to Registrar’s Office.
+- Course Withdrawal (After add/drop period). N/A. Submit request via email with course instructor’s approval.
+- Credit Transfer. VinUni Transfer Credit Form. Submit with supporting docs to registrar@vinuni.edu.vn.
+- Graduation Application. N/A. Available online during graduation application period.
+- Double Degree. Double Degree Form. Submit request via email to Registrar’s Office.
+
+#### Program & Study Status Changes
+
+- Purpose. Form. Submission Method.
+- Program Change (Major, Degree, or College). VinUni Change of Program Major Minor. Submit to Program Director & Registrar.
+- Leave of Absence. VinUni Defer Withdraw Form. Submit via email with advisor/PD’s approval.
+- Return to Study. VinUni Request to return from a Leave of Absence. Submit at least 1 month before semester begins.
+
+#### General petition
+
+Students may use the General Petition form to submit academic or administrative requests that are not covered by existing standard forms. Common use cases include:
+
+* Requesting academic exceptions (e.g., credit overload, course changes after the deadline)
+* Requesting deadline extensions due to personal circumstances
+* Appealing the application of a policy in special cases
+
+- Purpose. Form. Submission Method.
+- General Petition. VinUni General Petition Form. Email to registrar@vinuni.edu.vn, CC your Academic Advisor and Program Director (if applicable).
+
+#### Where to Get Help
+
+* Some forms may be available only upon request. If you’re unsure which form to use, contact the Registrar’s Office.
+* All forms must be submitted using your VinUni email address.
+
+#### Contact
+
+* Email: registrar@vinuni.edu.vn
+* Phone: +84 – 2471 089 779 (ext. 9004)
+* Office: Room I114, 1st Floor, Building I
+* Office Hours: Monday – Friday | 08:30 – 17:30 (GMT+7)
+
+## Academic Regulations for Full-Time Undergraduate Programs
+
+TABLE OF CONTENTS
+
+Please find Vietnamese version via this link: VU\_HT03.VN\_QC dao tao dai hoc he chinh quy theo he thong tin chi
+
+## Glossary of Terms
+
+- **MOET**. Ministry of Education and Training.
+- **University**. VinUniversity/VinUni.
+- **College**. An academic unit that undergraduate students are registered in academic programs.
+- **Dean**. Refers to the Head of a College or a Faculty.
+- **Program Director**. A member of the academic staff in a College or a Faculty responsible for administrative matters relating to curriculum development and assurance of learning of majors and minors in an academic program..
+- **Course Leader**. A member of the academic staff in a College or a Faculty responsible for administrative matters relating to a specific course or a group of courses..
+- **Course Instructor**. An academic staff who is responsible for delivering a specific course..
+- **Degree**. The University’s undergraduate curricula are organized into degrees. The bachelor’s degree is normally granted upon completion of a program of study. *For example: Bachelor of Science in Electrical Engineering (BSEE) or Bachelor of Business Administration (BBA) or Bachelor of Nursing (BN).*.
+- **Major (Concentration)**. A major field of study is the core competence area, comprising a structured group of courses that aims to create a broad and deep intellectual experience in an academic discipline. *For example: Electrical Engineering (as a major) or BBA (Finance) (Finance as a concentration)*.
+- **Minor**. A minor consists of a structured group of courses that focuses on a particular academic discipline, allowing students to develop some depth of understanding in a subject area or topic of professional interest. *For example: Computer Science/Robotics as a Minor of BSEE; Real Estate as a Minor of BBA.*.
+- **Double Degree**. Students may earn two degrees by fulfilling all the requirements of both degrees. Students who complete the requirements of two major programs, but complete the requirements of only one degree will not be awarded a double degree..
+- **Credit Transfer**. A process that provides students with agreed and consistent credit outcomes for a component of an academic program based on identified equivalence in content and learning outcomes between matched academic programs..
+- **Full-time student**. A full-time student is undertaking at least 80% of a full-time load in an academic program. The normal annual full-time load is 30 credits..
+- **Conferral**. The date on which an academic qualification is granted. This date appears on the student’s official parchment..
+- **Academic Standing**. Academic standing is an indicator of students’ academic progress..
+
+## Chapter I General Provision;)
+
+### Article 1. Governing Scope and Regulated Entities
+
+This document specifies rules and regulations that govern educational arrangements, examinations, assessment, grading, and graduation requirements based on an academic credit system for full-time undergraduate students at VinUniversity. These rules and regulations also apply to exchange and visiting students.
+
+### Article 2. Medium of Instruction and Assessment
+
+1. Unless otherwise approved by the University for a specific course or program of study, English is the medium of instruction (including lectures, tutorials, and laboratories) at the University. Individual instruction or consultation may be in any language.
+2. The College of Arts and Sciences may teach in Vietnamese and use Vietnamese reading materials for the required courses of the Ministry of Education and Training. In such a case, the materials will be provided in English to students as and when requested.
+3. The College of Health Sciences (CHS):
+
+3.1 Course and Clinical Rotation Language Use: the College has the option to conduct courses and clinical rotations in Vietnamese when deemed appropriate. Overall, the formal teaching and learning materials will be provided in English, but the College may utilize some Vietnamese language materials and deliver the content either in Vietnamese or in a bilingual Vietnamese – English format. The College will inform students of the language use prior to the start of the courses/semester/rotation.
+
+3.2 Language Proficiency Requirement for International Students
+
+* 1. International students are required to demonstrate Vietnamese language proficiency at level B2 (in accordance with Vietnamese Language Proficiency Framework for Foreigners (6-level framework), issued by the Ministry of Education and Training) before entering the Medical Doctor Program in Year 4. This requirement is intended to ensure that students are adequately prepared for clinical and practical training components that involve the use of the Vietnamese language.
+  2. This requirement applies to students of the Cohort 2025 onwards. For previous cohorts, students are encouraged to achieve this requirement.
+
+3.3 Clinical Rotation Timing and Language Use
+
+* 1. The clinical rotations are tentatively scheduled for the second half of the undergraduate programs (i.e. the third and fourth years of the Bachelor of Nursing and the fourth to sixth years of the Medical Doctor program).
+  2. It is noteworthy that all official documents in the teaching hospitals as well as local health care/community-based facilities (such as medical records, medical SOPs, charts, prescriptions, etc.) are in Vietnamese language. Also, all formal communication in the operation of these facilities (between health professionals as well as between patients and health professionals) is in Vietnamese.
+
+3.4 Post-Graduation Clinical Practice and Licensing Exams
+
+1. 1. Furthermore, for those students who intend to pursue clinical practice in Vietnam post-graduation, the upcoming national practice licensing/qualification exams for medical and nursing graduates will be conducted in Vietnamese by the Law on Medical Examination and Treatment, issued by The National Assembly.
+   2. The College will offer essential assistance to students who are not proficient in Vietnamese, and details regarding the support provided, as well as any requirements, will be communicated within the curriculum framework.
+
+*\*Please refer to this document for more details:* Vietnamese Language Program Guidelines For International Students – VinUni Policy
+
+### Article 3. Academic Program and Syllabi
+
+1. An academic program (hereinafter referred to as “program”) involves degree levels; educational objectives and learning outcomes; required credits; an academic plan associated with the time to obtain a degree; a teaching methodology and a mode of delivery; a mode to assess academic performance; and other conditions for its implementation. Each academic program needs to comply with the current requirements of the MOET and the university approval process.
+2. Each program shall be affiliated with one major (single major), and/or concentrations, and/or several majors (double major, major-minor) which typically includes General Education requirements, College/Faculty requirements, major requirements, free electives, and/or a minor. Each program comprises courses offered in each academic year.
+3. The course syllabus includes the number of credit hours, prerequisites (if any), theoretical and practical content, methods of assessment, coursebooks, list of reference materials and requirements for laboratory/practical/clinical practice, and similar exercises.
+
+### Article 4. Course and Credit
+
+1. A course is known as a relatively complete amount of knowledge or skill that facilitates students’ accumulation of knowledge or skills during their learning process. Each course is assigned a fixed number of credits based on the contents of its instruction. The number of credits earned by the student reflects the effort expended to acquire the knowledge or skills that are described in the course objectives.
+2. Each course shall have a title and a code. The course code shall consist of alphanumeric with the number indicating the education level of the course as specified by the University course numbering policy.
+3. Types of courses are listed as follows:
+
+- **Type**. **Description**.
+- Required Course. Contains the main learning outcomes of a section of the curriculum which students are required to pass to be eligible for graduation..
+- Elective Course. Contains the necessary learning outcomes that students are allowed to select themselves (conditionally or freely) according to the guidelines of the Faculty and/or College to diversify their specialization or choose at their volition to accumulate a specified number of courses needed to complete their curriculum..
+
+1. Credits
+   1. A credit is a unit that is used to determine the amount of academic work of a student. A credit is equivalent to 50 hours of study for students, including taught study (contact hours), tutorials, self-managed study, experiential learning, assessments, and exams.
+   2. 1 credit is roughly equivalent to 15 contact hours for courses that use a lecture or classroom-based instruction; 30 – 45 contact hours for practicum and laboratory courses, 45 – 90 contact hours for fieldwork (in industry, communities, or hospitals) based courses; 45 – 60 hours for courses that involve independent studies such as thesis or internship. A course may comprise various teaching and learning modalities (such as lecture and lab, or lecture and fieldwork). In such cases, the total number of contact hours will be adjusted to be equivalent to other courses with similar requirements.
+   3. For each credit, students are advised to spend at least 30 self-study hours during the course of the semester to acquire the required knowledge to achieve a credit.
+2. Non-credit bearing courses: some courses like internship/practicum courses, experiential learning courses, and service-learning courses could be non-credit bearing, which refers to learning activities which students are required to do as part of their curriculum, but which do not carry any credit.
+
+### Article 5. Class Meeting Times
+
+1. Class meeting times may start at 8:00 a.m. and finish at 5.30 p.m from Monday to Friday, depending on the type of formal classes or laboratories, or similar exercises.
+2. Duration of class: Each class and lecture period normally last either 50 or 75 minutes. Any special requests for durations outside of 50/75 minutes need to be approved by the Provost in advance.
+3. Class schedules are the responsibility of the Office of Registrar based on the request of Faculties and Colleges. All lectures, laboratories, tutorials or discussion sessions start at specified times and continue for required durations. Consecutive classes are separated by intervals of 10 or 15 minutes.
+4. Evening and weekend lectures, discussions, laboratories, or similar exercises of 50 or 70-minute duration can be convened until 9:25 p.m. upon request and by permission of the Dean and the Office of Registrar.
+5. Where it is necessary for courses to be taught in a short period of time, each course shall not be taught for more than 15 hours/week and 4 hours/day.
+6. Office hour for course policy
+   1. All instructors should maintain office hours for their courses based on an assessment of the needs of their students and their courses, and the College and discipline guidelines. Special requests will be approved by the Dean of College or Head of Faculty.
+   2. Instructors have the option to hold “Open Office Hours”. Open Office Hours is equal to, at a minimum, the total credit hours associated with the highest credit course the instructor teaches during a semester.
+   3. This policy outlines only the minimum number of Open Office Hours for each course. Instructors should assess the needs of their students and the demands of their course and make decisions regarding the amount of office hours needed to support their students.
+   4. This policy does not include office hours held by Teaching Assistants or any other support staff.
+   5. Open Office Hours do not have to be held in person; rather they can be held online as long as students are able to easily access them.
+   6. Instructors should offer Office Hours at a time and location that is convenient and accessible for students.
+
+### Article 6. Student Academic Performance Evaluation
+
+The academic performance of students is evaluated after each academic semester based on the following criteria:
+
+1. The number of credits that students have earned in the semester.
+2. Semester Grade Point Average (SGPA) is a numerical average of grades (converted into a 4-point scale) based on all courses taken in a single semester. SGPA is calculated by dividing total grade points earned by the total attempted credits in a given semester.
+3. Cumulative academic load is the total credits attempted with passing letter grades (from D- and above) earned since the beginning of the program (includes exempted and transferred courses).
+4. Cumulative Grade Point Average (CGPA) is a numerical average of grades (converted into a 4-point scale) based on all courses taken within a particular program of study. CGPA is calculated by dividing total grade points earned by the total attempted credits up to a certain time point.
+
+## Chapter II Educational Arrangements;)
+
+### Article 7. Academic Planning and Duration of Study
+
+1. Academic planning shall be arranged by a program of study, an academic year, and an academic semester.
+   1. A program of study is designed for students to complete a specific curriculum in a certain duration. The planned duration of the curriculum must not be less than 180 credits for a six-year undergraduate program and 120 credits for a four-year undergraduate program.
+   2. An academic year has two main (regular) semesters, Fall and Spring. Each semester has 15 weeks of actual study, 1 (one) week for an Independent Study Week or revision and 02 (two) weeks for final exams or final assessment.
+   3. An independent study week: The independent study week shall apply to all undergraduate students. Exceptions may be considered for medical programs or other structured curricula where the nature of the program requires continuous instruction and assessment. Exceptions shall be reviewed and approved on a case-by-case basis by the College Dean in consultation with the Office of University Registrar.
+
+- Activities. Academic Expectations.
+- – During the independent week, no scheduled classes or exams shall be conducted. Deadlines for significant assignments remain valid for this week, and instructors must ensure communication with students from the start of the semester, explicitly outlining these deadlines in the syllabus. – Students are encouraged to use this time for relaxation, self-reflection, and pursuing activities that promote personal well-being and academic success.  – Academic units may organize optional academic support activities to assist students in their preparation for exams.. – Faculty members are encouraged to provide students with guidance and resources to support their independent study efforts during the week. – Students are expected to utilize the independent week effectively by engaging in productive self-study and exam preparation activities.  – The independent study week is not intended as an extension of vacation time, and students should prioritize academic responsibilities during this period..
+
+4. Pre-Fall and Summer sessions shall be arranged alongside the main academic semesters.
+   5. The Dean or Dean-designee shall make decisions on allocating the number of courses within each academic year and each semester based on the content and the amount of academic work of the curriculum. The Registrar is responsible for setting the academic calendar for the University.
+2. The maximum time to earn an undergraduate degree includes the planned education duration plus four main semesters for a four-year program or plus six main semesters for a five- to six-year program.
+3. On a case-by-case basis, the Provost can, upon petition of the student and the Dean’s recommendation, extend the duration of study for students facing unusual circumstances (e.g. sickness, maternity, civil service, etc.).
+4. The duration of a double degree must not exceed the maximum duration of the study of the first degree.
+
+### Article 8. Program Enrollment
+
+1. Admitted students must provide a full enrolment document package as provided in the University Regulations for Undergraduate Admissions. The Provost shall sign the decision of recognizing the full-time student list.
+2. All enrolment registration procedures must be completed within the required duration as provided in the University Regulations for Undergraduate Admissions.
+3. Upon entry to the University, students will be admitted to a College or an academic program. They will be enrolled in a degree with a specified or an undeclared major. Each student will be granted a student identity card upon their registration into their program of study.
+4. Students having an undeclared major shall declare their home major at the latest by the end of the second year.
+5. Any subsequent change of the home major should be submitted for Dean’s (or his/her designee) approval. If approved, the change will take effect from the following semester.
+6. Unless otherwise approved by the University, students who are admitted for full-time studies are expected to study full-time in the degree concerned and are not permitted to enroll in a full-time or part-time study for any other award qualification either at the University itself or any other outside institution.
+
+### Article 9. Class Arrangements
+
+1. A minimum number of classes shall be arranged for each course that students register for in a semester. The Provost or Provost-designee will approve in principle the established minimum enrolment of students for a course. The minimum class size for each standard course should be at least 10 students unless otherwise approved by the Provost, on Dean’s proposal.
+2. Any classes below the minimum size that are recommended for continuation must be approved by the Provost on the recommendation by Dean.
+3. If enrollment falls below the minimum number, classes are subject to cancellation, and students enrolled in these classes should be re-assigned. Students must change their registration into other alternative courses if their credit load without the canceled course does not fulfill the minimum study load for that semester.
+
+### Article 10. Course Registration
+
+1. At the beginning of each academic year, the Office of Registrar shall announce the tentative academic calendar of each program, the list of required and elective courses, a course description, prerequisites for registration, exam period, and formats of exams and assessment, etc.
+2. Students must register for courses with the Office of Registrar. The registration must be based on their academic capability in accordance with the prerequisites of the course and the program requirements.
+3. Students shall be responsible for their studies at the University. Students must understand the curriculum requirements of their program and plan ahead to complete their program within the permitted duration of the study.
+4. Students’ registration shall only be accepted by the Office of Registrar provided that it complies with current regulations of the University and any exceptions are approved by the is approved by the Program Director.
+
+### Article 11. Study Load
+
+1. The study load is determined by the amount of credits the student is studying. A normal full-time load is 30 credits spread over an academic year. The student may be able to increase or decrease his/her study load to help meet his/her academic goals.
+2. To be classified as a full-time student, s/he must be enrolled in at a minimum, 80% of a normal full-time load in a regular Semester (equivalent to 12 credits).
+3. The study load variation in the regular semester is specified as follows:
+
+- **Variation**. **Academic load per regular Semester**. **Remarks**.
+- Normal load. At least **14 credits** (applicable for first-semester students, and students with good academic standing or higher in the previous semester; not applicable for the final semester). At least 10 credits and no more than 14 credits, applicable to students with poor academic standing in the previous semester.. This is to complete the degree requirements within a normal specified duration of study..
+- Automatic Overload. 18-22 credits, subject to be reviewed by the Academic Advisor/Program Director.. This enables students to pursue their studies at a pace commensurate with their needs and/or capabilities.
+- Beyond automatic overload. More than 22 credits, subject to approval by the College Dean or Dean-designee..
+
+1. Summer session (semester): Summer session (semester): up to 9 credits with no required minimum study load. The workload will be calculated solely for the summer semester (as a separate/supplementary semester), not for the regular semesters (Fall/Spring).
+2. Students must petition for overloading if they are: (i) First semester first-year student requesting to take more than 18 credits; (ii) Not in good academic standing in the previous semester and wish to take more than 18 credits; (iii) Requesting to take more than 22 credits in the regular semester. The total number of credits, including physical education, support, and repeated courses, non-credit courses are used to calculate overloading.
+3. Prerequisites: Students registering for a course must meet the prerequisite requirements of each course and academic sequences of a particular program. Exemptions from prerequisites require the approval of the Program Director.
+
+### Article 12. Course Add, Drop, and Withdrawal
+
+1. Students are allowed to add a course to their schedule no later than the close of the 10th business day of the regular semester and no later than the close of the 5th business day of the mini semesters (Fall A/B, or Spring A/B).
+2. Students are allowed to drop a class within the drop deadline that is published in the academic calendar for that semester. The drop deadline for a regular semester is no later than the close of the 15th business day of the semester and no later than the close of the 10th business day of the Summer. Changes made in this period will not be included in the academic record of the students.
+3. Dropping a class after the add/drop period has ended is considered a Withdrawal. Students may withdraw from a course after the add/drop period has ended with no grade penalty. Students will receive a “Withdrawal – W” grade on their transcript for the course when they withdraw.
+4. Students who wish to add a course after the add/drop period has ended, need to petition with approval from their academic advisor/Office of Registrar. The Instructor may allow the addition upon her/his discretion.
+5. Course withdrawal policy:  
+   a.  “W-Withdrawn” grade will be assigned on a student’s transcript when a student has registered for the course in a semester but has subsequently submitted a notification of withdrawal to the University. The “W” indicates that students attempted the class but eventually withdrew before completing it for a letter grade.  
+   b.  Withdrawal from a course is permitted after the course dropping period and must occur before completing no more than 30% of the study time for that course. After that date, withdrawals will no longer be permitted, and students will be graded according to their course performance. If the student withdraws before the “Drop Date” for each semester, no W grade should be recorded on the transcript.  
+   c.  The withdrawal limit policy allows students to withdraw from a maximum of 18 credits over the entire program of study. Once the limit is reached, students can no longer withdraw and must remain enrolled. The instructor(s) will assign appropriate grades(s).
+
+### Article 13. Transfer of Credit and Course Exemption
+
+1. Transfer of Credit
+   1. Transfer of credits may be granted to students in recognition of studies completed elsewhere other than VinUniversity at an appropriate level as recognized by the University, for example, international exchange programs, local exchange programs, summer study programs, or other external study programs (non-exchange and self-arranged by students).
+   2. For outbound exchange students, the credit units earned at host institutions can be transferred to their academic records at the University. Students should submit the credit transfer pre-approval applications to the Office of Registrar and respective academic units prior to their departure for the exchange programs. When students return from the exchange studies, they should submit the official transcripts to their academic units for credit transfer arrangements.
+   3. Transfer credits normally do not count in the calculation of a student’s GPA, except where special arrangements have been made (e.g., in joint programs with other institutions). Transfer credit accepted is reflected on the VinUniversity transcript with a grade of “T – Transfer”, not the actual grade received at the other institution.
+   4. Individual college or academic programs may stipulate the maximum number of transfer credits that students can obtain throughout their studies (including transfer credits for study exchange or joint programs with other institutions). Maximum load that may be recognized and transferred shall not exceed 50% of the minimum academic load of the academic program.
+2. Course Exemption
+   1. Students may be granted an exemption from course requirements or other requirements of an academic program without the transfer of credits based on studies at an appropriate level completed at an institution other than at VinUniversity. Students may be required to take other course(s) to make up the credits required for fulfilling the degree requirements.
+   2. Exemptions from National Defense Education and Physical Education (equivalent to the Course Healthy Lifestyle) shall comply with MOET’s current guidelines and regulations.
+   3. In the student’s academic record, an exempted course is recorded with a “Z” grade meaning “Exemption”. If the exempted course is a pre-requisite of another course at the university, students will be regarded as meeting the pre-requisite requirement with the course exemption.
+3. Application Procedures: Students need to petition for transfer of credit or an exemption:
+   1. Before Admissions: Students’ prior study should be disclosed in their applications for admission, and applications for credit transfer or exemptions must be submitted before the beginning of the first semester of their admission.
+   2. During Registration: Current students who complete studies elsewhere during their registration at VinUniversity must submit applications no later than one month after a student’s return to study at VinUniversity. The request should be made to the Office of Registrar. The Registrar will evaluate the request and map the external credits into specific VinUniversity courses with the support of relevant academic units.
+
+### Article 14. Re-study/Improvement Study
+
+1. Re-Study/Improvement Study a course for any reason is the student’s responsibility and it is at his/her own risk. The University is not obligated to offer a course again for a student who failed it previously or wishes to repeat it.
+2. Students who fail a required course in their study program will have to retake that course or to take an equivalent course as prescribed in the curriculum or an alternative course if that course is no longer taught in the following semesters.
+3. Students who fail an elective course will have to retake that course or take an equivalent elective course in the following semesters.
+4. If a student does not fail a course but wishes to repeat it to improve the cumulative grade point average, they may do so. After the first attempt, only one repeat attempt is permitted.
+5. The most recent grade will be calculated into GPA. The original grade will not count toward GPA.
+
+### Article 15. Leave of Absence or Sick Leave
+
+1. Students wishing to defer their studies for a period of time or temporarily suspend their studies from a program may request a voluntary leave of absence or suspension to the Dean of the College. Leave/suspension may be granted for one to two semesters depending on conditions and can be extended after further approval.
+2. Students are allowed to apply for a voluntary leave of absence or withdrawal and to reserve the study results in the following cases:
+   1. Students are dispatched to the military service requiring a letter or verification from the Armed Forces;
+   2. To be appointed by the authority to represent the country to participate in international competitions and tournaments;
+   3. Students have a medical emergency or serious illness requiring long-term treatment which is certified by a recognized medical agency. All those documents must be translated and notarized if not in English.
+   4. Students have a personal or family hardship. In this case, students must study for at least one semester, must not fall into cases of being forced to leave as prescribed in Article 15 of this Regulation. Temporary absences for personal reasons will be included in and counted towards the official duration of the study.
+3. Leaves/withdrawals requested for an upcoming semester will be effective on the day after the end of the last semester attended. A voluntary leave of absence or withdrawal granted during a semester will be effective on the date the request is submitted.
+4. To apply for a leave of absence, students must complete the application for student leave of absence (with proper documentation addressing the permitted reasons) and submit to the academic advisor for review. The Office of the Registrar will review requests with the College and notify the students.
+5. After returning from a temporary leave of absence, students must complete and submit a return application to the Office of Registrar, at least one week before the start of the new semester. The form must be accompanied by documentation that explains their progress during the leave that would enable them to return successfully to the program. Students will be notified of a final decision by the Office of Registrar. If they do not return to the academic program immediately after the approved leave has ended, and do not promptly obtain an extension of their leave of absence, then their student record will be made inactive. In order to return to academic work at a later time, they must formally reapply for admission through the Office of Admissions.
+6. The University reserves the right to place a student on an involuntary leave of absence in certain circumstances. This is meant to be invoked only in extraordinary circumstances when a student is unable or unwilling to request a voluntary leave of absence, and such a leave may be necessary because the student’s behavior disrupts the University’s learning environment. Before an involuntary leave is considered, efforts will be made to encourage the student to take a voluntary leave, thus preserving, to the extent possible, confidentiality and privacy.
+
+### Article 16. Student Classification and Academic Standing
+
+1. After each regular semester, based on the accumulative amount of credits, the class standing of students (except for transfer students) is determined as follows:
+
+Class standing applies to Business Management, Engineering, Computer Science, Arts and Sciences:
+
+- ***Class Standing***. ***Number of accumulated credits***.
+- Freshman. Below 30.
+- Sophomore. 30 – 59.
+- Junior. 60 – 89.
+- Senior. 90 or more credits.
+
+Class standing applies to Health Sciences:
+
+- ***Class Standing***. ***Number of accumulated credits***.
+- Freshman. Below 35.
+- Sophomore. 35– 70.
+- Junior. 71 – 105.
+- Senior. 106 – 140.
+- Fifth-year senior. 141 – 175.
+- Sixth-year senior. 176 – 255.
+
+The University may use class standing to determine a student’s eligibility for receiving financial aid and scholarships, applying for degree programs, enrolling in courses, and evaluating progress.
+
+1. After each regular semester, based on the cumulative GPA, students are ranked for academic standing as follows:
+
+- ***Academic Standing***. ***Cumulative grade point average GPA***.
+- Excellent. 3.60 – 4.00.
+- Very good. 3.20 – 3.59.
+- Good. 2.50 – 3.19.
+- Marginal. 2.00 – 2.49.
+- Unsatisfactory (At risk). Below 2.0.
+
+1. Academic results and credits for Summer or Pre-Fall sessions are included in the calculation for class standing as well as academic standing.
+
+### Article 17. Academic Warning, Probation and Dismissal
+
+1. If required, students are given an academic warning at the end of the regular semester. Academic warning is an indicator of academic difficulty for students who may need academic advising and additional support. While the academic warning is captured in the Student Information System record, it is not shown in official transcripts.
+2. The Office of the Registrar will consult with the Program Director of the program to determine if the student is subject to warning, probation, or dismissal.
+3. The Dean will recommend a student’s dismissal to the Provost, who will make the final decision. The Provost’s decision is final.
+4. There are three levels of academic consequences:
+
+- **Level**. **Criteria**.
+- **Academic Warning** *(student’s academic performance has been unsatisfactory, of their overall academic average is below minimum requirements)*. a) Students get a cumulative GPA under 1.20/4.0 for freshman, under 1.40/4.0 for sophomore, under 1.60/4.0 for third-year or under 1.80/4.0 for seniors and subsequent academic years. Or  b) Students earn a semester GPA under 0.80/4.0 in the first semester and under 1.00/4.0 in the following semesters;  Or  c) Total number of failed credits in the semester exceeds more than half of the number registered for the semester or total number of failed credits from the beginning of the course is more than 24;.
+- **Academic Probation** *(a student is not making the academic progress the university requires for graduation)*. A student who is placed on academic warning two consecutive times is subject to academic probation. The student will need to obtain approval from his/her academic advisor to enroll in courses. The student will remain on academic probation until his/her cumulative GPA reaches 1.40/4.0 for sophomore, 1.60/4.0 for juniors, or 1.80/4.0 for seniors and subsequent academic years..
+- **Academic Dismissal** (*Students who cannot benefit from course registration in the next semester may be suspended for an approved period of not less than one semester).*. a) Students whose study time exceeds the maximum time allowed to study at the University. Or  b) Students who are placed on academic warning three times in total (one academic probation is considered as two times of academic warning), even if those times are not sequential.  Recommendations for dismissals are reported to the relevant Dean.  Students are entitled to reserve the academic results accumulated when subject to academic dismissal.
+
+### Article 18. Academic Honors
+
+1. Dean’s List: Students are placed on the Dean’s List at the end of the regular semesters when their academic achievement in that semester meet the following criteria: (i) Minimum SGPA 3.60 (Very Good), calculated at least 12 letter-graded credits) per regular semester, have not failed any course registered; (ii) have not committed any recorded major confirmed act of misconduct. This achievement will be recorded on their transcript.
+2. Exception for Medical Doctor Students: For Year 1, 2, and 3 medical students, the university-wide traditional process for Dean’s List eligibility will apply. However, due to the distinct nature of the clinical training schedule in Years 4-6, which differs from the traditional pre-clinical curriculum, these students will be exempt from the usual Dean’s List evaluation. Instead, medical students in Years 4-6 will be evaluated based on their academic performance at the end of each academic year, with the Dean’s List honor being collectively recorded for both the Fall and the Spring semesters (CGPA).
+
+### Article 19. Double Degree
+
+1. **A Double Degree** is applied for those who are enrolled full time in the first program and wish to apply to a second program concurrently so that they can graduate with two undergraduate degrees. A Double Degree consists of a combination of two separate degrees from two discipline areas in the same College or in two different Colleges.
+2. **Eligibility to Study Double Degree Program (DDP)**
+   1. The discipline of the second degree must be different from that of the first degree.
+   2. Students can register for the second program at the earliest when they have been ranked in the second year of the first academic program.
+   3. At the time of registration, students must meet (i) academic ability based on the cumulative grade point average of good or higher (CGPA=2.5 or higher); (ii) entry threshold requirements of the second program in the enrollment year; and (iii) is not currently in a period of disciplinary action equivalent to warning or higher.
+   4. During the course of students studying two programs at the same time, if the cumulative GPA of the first program is below the average or subject to a warning of academic results, they must stop studying the second program in the second semester then students will be removed from the list of registered students for the second program.
+   5. For those who wish to study the double degree program need to register the second program at least 2 years prior to the tentative graduation of the second program.
+3. **Registration and Selection Process**
+   1. Registration period: after the academic results of the first semester, or the results of the previous academic year (usually January or July every year).
+   2. Students register for the second program according to the following steps:
+      1. Step 1: Submit the application form for studying two academic programs at the same time (form provided) to the Registrar Office. Note: Students need to be proactive seeking for advice from Academic Advisor, Program Directors of both programs before officially register;
+      2. Step 2: The Registrar Office evaluates the eligibility of the application, if approval, make a list and send the application form and student profile to the College in charge of the second program;
+      3. Step 3: The Program Director of the second academic program considers the equivalent courses of the two academic programs which indicate the transferable credits and courses that students gained from the first academic program;
+      4. Step 4: The Second Program’s Review Board reviews the application and proposes for approval. The number of Board member is odd at minimum of 3 members, including Program Directors and two faculty of the second program.
+      5. Step 5: The Registrar Office gathers the list, reports to the Provost (or authorized person) for decision making and notices to students and related Departments no later than three (03) weeks before the semester.
+4. **Program Curriculum and Duration**
+   1. The curriculum framework of the second program is applied in the registration year.
+   2. When studying the second degree, students can transfer the grades, credits of equivalent courses that they gained in the first program and vice versal. If students have completed the general education modules of the first academic program, they will be considered for conversion and will not be required to take additional courses.
+   3. Students who are in the double degree program must complete internship programs and dissertations according to the requirements of each program.
+   4. The maximum time that students are allowed to complete the double degree program is the maximum time allowed to complete the first program.
+5. **Tuition fee**
+   1. Students enrolled in the second program must pay tuition according to the second program’s financial regulations. Additional credits are required to complete the second program and are charged at the standard tuition rate per credit.
+   2. Scholarship and financial aid applications for the Second Program are evaluated upon enrollment in the Second Program.
+6. **Graduation Eligibility**
+   1. Students are only considered to graduate from the second program if they meet the requirement to graduate from the first program.
+   2. If students do not meet the requirement to graduate from the second program or both programs within the allowed time, they are provided the letter to confirm their academic result.
+
+### Article 20. Program Change and Institutional Transfer
+
+1. **Program Change (internal transfer):**
+   1. Change requests may include changing of Major (including major/area of concentration/minor). It means that primary College and degree type stay the same; Change of Degree (degree program changes but the primary College/faculty remains the same); Change of College/Faculty (primary College/faculty changes).
+   2. A student can apply for changing the current enrolment if s/he: (is) meets the admission requirements and is eligible for entry into the proposed program/major; (ii) is not currently a first-year or final-year student (applies for Change of Degree/College); (iii) is not subject to consideration of suspension of study.
+   3. A student is only eligible for one program change per academic year. Change requests will be processed once per semester, making the change take effect from the beginning of the next semester.
+   4. College may set the specific criteria for each program apart from the university generic requirements (academic standing, EXCEL attributes, etc.)
+   5. If a student received transfer credits from another institution upon their initial enrolment to VinUniversity, the transfer of credit may be re-assessed for the requested change.
+2. **Institutional Transfer (external transfer):** Students are allowed to transfer to other universities in the following cases:
+   1. Students are transferring to another university that offers the same disciplines or a group of disciplines as the students’ previous ones.
+   2. The transfers are approved by both VinUniversity’s Provost and the transfer–in university’s Provost;
+   3. Students do not fall into any cases as prescribed in Clause 2 of this Article.
+3. **Students are not allowed to transfer to other universities in the following cases:**
+   1. Students do not meet the requirements for admissions of the transfer–in universities;
+   2. Students are freshmen or in their final year of study;
+   3. Students are being disciplined at the warning level or higher.
+4. **Procedures for university transfer**
+   1. Students who request university transfer must prepare the full document package according to the University’s regulations and submit it to the Office of the Registrar;
+   2. The Office of the Registrar in consultation with the Program Director and Dean/Vice Dean will make a recommendation to the Provost regarding the transfer out. The Provost will make the decision to allow a transfer-out, conditional to approval from the authorities at the transfer-in university. The appropriate authority at the transfer-in university shall make the decision on accepting the student as a transfer in, and the credits and requirements appropriate.
+
+## Chapter III Examination and Course Assessment;)
+
+### Article 21. Course Assessment, Class Attendance, and Absence
+
+1. The instructor has the responsibility to design a course assessment that is aligned with learning outcomes and that comply with the principles and standards of the University.
+2. The assessment plan (methods, types, tasks, and percentage weight) for a course must be described in the course syllabi and provide to students before the class. Except when necessitated by unforeseen circumstances, the assessment framework should remain unchanged throughout the semester. Online assessment may be employed if it is as honest, fair and impartial as direct assessment and shall contribute no more than 50% to total weighted grade of the course.
+3. Class attendance Expectations
+
+* + It is each student’s responsibility to attend all scheduled classes unless excuses have been approved by the course instructor. Specific class attendance policy will be stated in the course syllabus.
+  + Students should register their attendance using the methods (electronic or manual) specified by the instructor. If a student fails to register using the approved methods, it is her/his responsibility to provide evidence of their attendance to get credit.
+  + Failure to attend required sessions will result in an automatic unexcused absence unless the course instructor grants an exception. Students are accountable for all covered content; instructors will typically not make allowances to accommodate unexcused absences.
+  + Tardiness or absenteeism from scheduled educational activities will typically result in reduced grades or other penalties imposed by the instructor.
+  + Students are expected to arrive on time for all educational activities, stay for the duration of the activity and not cause or participate in disruptions to any educational environment during the educational activity. This expectation is encoded in the student code of conduct and is an essential component of professionalism.
+
+1. Procedure to report a planned or unplanned absence)
+
+- Planned Absences. If a student knows in advance that they will miss required sessions, she/he must inform the instructor (or the Teaching Assistant) in advance, provide a complete justification and seek their permission. The instructor may accept or deny the request based on the justification provided. * Accepted excused absences include presenting at a professional conference, participation in a leadership/ competition/service activity or official representation of VinUniversity. The number of days off will be decided by the instructor based on what would be missed in terms of course requirements and experiences. * Personal circumstances may include significant family or personal events that acutely disrupt the student’s ability to attend to course responsibilities..
+- Unplanned/Emergency Absences. Participation in university-sponsored events, travel complications, hazardous weather conditions, personal hardship, illness, family emergency, or death in the immediate family are examples of extenuating circumstances that may justify an absence. Instructors might seek documentation to confirm the existence of such exceptional circumstances. * Prior to the session, or as soon as feasible thereafter, the student or his/her representative must contact the course instructor or course teaching assistant by email to tell them of the unexpected absence. * If the student or his/her representative cannot reach the course instructor or course teaching assistant, he/she should alert the Office of the University Registrar.  This Office will be responsible for relaying the information to the relevant parties..
+
+1. Make-up class instruction
+
+1. In the event the student is granted an excused absence, the course instructor will establish guidelines for implementation of makeup plans, where available, that are specific for the unique requirements of the course.
+2. In the case where (1) the absence is requested 30 days in advance and (2) the course instructor is unable to arrange an alternate make up plan because of a student’s prolonged absence or the course instructor’s inability to recreate the needed clinical, lab material, the course instructor may deny approval for the requested absence.
+3. In the case where an absence is due to illness or unanticipated events (i.e. 30 days advance notice is impossible), the course instructor will determine if the requirements and experiences can be made up. The student must contact the course instructor as soon as reasonably possible to arrange a makeup plan. If the course instructor is unable to arrange a makeup plan because of a student’s absence (based on duration of absence, inability to recreate the needed clinical or didactic material etc.), the course instructor, in consultation with the Program Director, may require the student to repeat the entire course.
+
+1. **Absence from examinations**a. Students who are absent in the main final exam with approval by the Program Director, may be allowed a make-up exam. The final exam grade shall be considered as the first-time exam grade. A valid reason for absence can be:
+
+- 1. in case of having more than two examinations in a 24-hour period. 2. in case of an emergency or unavoidable problems such as an illness or injury requiring hospitalization. Confirmation or verification from a doctor or a health care provider is required. 3. With regard to family emergencies, students must provide verifiable documentation of the emergency. Given the vast array of family emergencies, the Registrar will provide precise guidance as to what constitutes adequate documentation. Unless the emergency is critical, students should notify the Instructor/Teaching Assistant and the Registrar in advance of their absence from the scheduled course event. In cases of critical emergencies, students must notify the instructor and the Registrar within one week of their absence. 4. For University-approved curricular and extra-curricular activities, verifiable documentation is also required. The student should obtain from the College/ Department/ Organization sponsoring the activity a letter / similar supporting documentation indicating the anticipated absence(s). The letter/document must be presented to the Instructor and the Registrar at least one week prior to the first absence. 5. In the case of religious holidays, the student should notify the Instructor and the Registrar by the third week of the course of any potential conflicts. 6. An important note for final exams: Early flights home, transportation tickets to leave town, and family vacations are NOT valid excuses to miss or reschedule a final exam. Students should make plans to leave campus AFTER all their scheduled exams are completed..
+
+b. Valid absence must be documented to the Registrar within one (1) week of the exam. Instructors are required to give the final exams according to the University schedule and cannot give makeups or reschedule for non-valid or non-approved excuses.  
+   c. The course syllabus shall indicate the missed examinations policy so that students are fully aware of the policy and its consequences. Typically, a student shall receive a grade of zero for the exam s/he misses. If the absence is due to a valid excuse for which verifiable evidence is presented, the course instructor may then give the student a make-up exam. In the absence of a make-up final exam, these students will have to take the exam in the following regular semesters or additional semesters.  
+   d. If the course is a pre-requisite for enrolment into the following semester the student will not progress and will apply for a leave of absence for the next semester(s).
+
+### Article 22. Final Exam Format and Schedule
+
+1. Final examination could be a final assessment (comprising various types of questions) or a culminating alternative such as a presentation, an essay, coursework, final report, or a combination thereof.
+2. Final examinations requiring assignment of an exam time are scheduled by the Office of Registrar to avoid conflicts among classes. After a study period of no more than two weeks at the end of a semester, the University will hold the final exam period.
+3. The University may offer an additional exam (a make-up final exam) for students who do not take the main exam, or have more than two examinations in a 24-hour period, or have earned an F grade in the main exam. The make-up final exam shall be organized after the main final exam no more than two weeks after the date of releasing the results of the main one.
+4. Students who require special accommodations because of learning disabilities or medical conditions (with proof of condition) can be granted additional time to take a final exam or other assessments required in the class, as determined by the Office of Student Affairs Management. They have the responsibility to inform the instructor within the first week of classes of such condition and present a letter to inform the Registrar, who will then inform all instructors and propose arrangements for extra time.
+5. The due date of take-home finals or a culminating project report for a class can be no earlier than the date promulgated by the Registrar for the final day of that class. The due date of an independent project can be no earlier than the last day of classes and no later than the last day of final exams.
+
+### Article 23. Marking and Retaking the Final Exam
+
+1. Course final exam questions will be consistent with the learning outcomes of the course.
+2. The course instructor is responsible for grading the final exams, essays, coursework, and final reports. The Provost shall set out regulations on protection, marking procedures, and storage of exam answer sheets.
+3. Written tests, essays, coursework, final reports, and other graded material shall be stored for at least two years from the date of submission.
+4. The organization of oral exams and/or practical exams in medical rooms, laboratories, or simulation rooms has to be carried out by two instructors. Oral exam grades shall be announced after the exam and evaluation are completed for all students. In case of disagreements on the final grade between the two instructors, the final grade shall be considered as the arithmetic average of two grades. In instances of large disparities between markers, grades may go to a third instructor for review.
+5. Students who do not attend the final exam without a valid reason shall be considered as having taken the exam once and will receive a zero (0) score in the main exam. These students, if permitted by the Program Director, may retake the exam soon after that (if any).
+6. Students who are absent in the main final exam with a valid reason, with approval by the Program Director, may be allowed a make-up exam. The final exam grade shall be considered as the first-time exam grade. In the absence of a make-up final exam, these students will have to take the exam in the following regular semesters or additional semesters.
+
+## Chapter IV Grading Policy;)
+
+### Article 24. General Principles
+
+1. Instructors have the sole prerogative of assigning student grades and cannot be the subject of administrative influence. However, as bound by ethics, grades cannot be capricious or associated with any bias based on race, religion, national origin, sexual orientation, gender, ethnicity or personal or professional affiliation, or any other reason. Instructors should agree to review a grade if the student alleges an error. No punitive grade shall be assigned unless a student was found to have violated academic integrity.
+2. Instructors shall report their grades for a class no later than seven (07) business days after the last day of scheduled exams unless they obtain permission from the Registrar. If an instructor decides to change a grade after the due date, s/he shall submit the grade in writing to the Office of Registrar with an explanation for doing so.
+3. Grades shall not be posted publicly in any way that may be associated with specific students. However, anonymized statistics may be posted for internal use at VinUniversity.
+4. Each College sets its criteria for affiliation to a major, based on minimum grades in certain courses and/or overall grade-point-average.
+5. To allow two or more Departments to offer or require a course that they have in common, such courses may be co-listed with different departmental designations, so students from their respective majors can apply it toward their degree requirements.
+
+### Article 25. Grading System
+
+1. The University grading system is composed of letter grades with pluses and minuses. Passing grades range from A to D–; F is a fail.
+
+- ***Grade Letter***. ***4-point scale***.
+- A. 4.0.
+- A-. 3.7.
+- B+. 3.3.
+- B. 3.0.
+- B-. 2.7.
+- C+. 2.3.
+- C. 2.0.
+- C-. 1.7.
+- D+. 1.3.
+- D. 1.0.
+- D-. 0.7.
+- F. 0.0.
+
+Based on the cumulative grade point average (GPA), students’ academic standing is assigned according to Article 16.
+
+1. Operational grades: Course grades assigned for administrative purposes to assist in the management of student records and do not apply to the GPA. Including:
+
+a. Completion Grades: The Completion Grades (CR, NCR) are used in required credit-bearing courses and non-credit co-curricular requirements where no letter grade will be granted, such as National Defense Education, Leadership Bootcamp.
+
+- ***Grade***. ***Definitions***.
+- CR. Completed Requirements (i.e., a Pass grade). The credits and non-credit activities count towards graduation requirements, but they do not contribute to the GPA..
+- NCR. Not Completed Requirement (i.e., a Fail grade). This grade will not be included in the GPA calculation. Students are required to re-take the course or co-curricular activities to fulfill the requirements for graduation..
+
+b. Situational Grades: Similar to the CR/NCR grades, all situational grades equal zero grade points and do not contribute to the GPA.
+
+- ***Grade***. ***Grade Definitions***.
+- I. Incomplete. is assigned when a student, for reasons beyond her or his control, is unable to complete the requirements (final exam or required assignments) of a course by the end of the semester. An incomplete grade must be normally converted to a regular grade within six months from the time it is granted. The student must request the Registrar (who then notifies the course instructor), together with relevant supporting documents (such as official medical records). Upon assigning an incomplete grade, the instructor must specify a period (deadline) for made-up work.  The final decision as to whether an incomplete may be given rests with the instructor; however, the maximum time limit is subject to University policy. If the work is not made up during the required period, the incomplete will be converted to an F..
+- IP. In-Progress. Courses are typically taught in one semester, except projects such as capstone design or senior thesis. IP-grades are awarded for such projects spanning more than one semester. When the project is completed, all relevant IP-grades are replaced by the final grade..
+- MT. Multi-term (A/B). Courses usually span from multiple terms and each course term is identified with a letter. “A” for the first half and “B” for the second half. MT is also a grade that can appear on students’ transcripts for the first term(s) of a multi-term course. The final grade shows in the final term of the course..
+- NGR. No Grade Report. This indicates that due to circumstances beyond the control of the student the Office of the Registrar did not receive the grade. The NR grade should be replaced by a letter grade as soon as possible and/or no later than graduation..
+- W. Withdrawn. Assigned when a student has registered for the course in a semester but has subsequently submitted a notification of withdrawal to the University. If the student withdraws before the “Drop Date” for each semester, no W grade should be recorded on the transcript. Minimum credit threshold decisions have to be driven by academic policy and reflected on the system..
+- T. Transfer. Assigned when a course is approved for transfer of credits.
+- Z. Exemption. Assigned when a required course is exempted.
+
+c. Audit Grades: With the permission of the course instructor, students may register in a course for Audit, attend the course, and participate in course activities. Auditing students will not be awarded a grade or earn credits. Subject to the satisfactory completion of requirements set by the Program Director, the course will be designated AU on the student’s transcript. Otherwise, the course will be removed from the registration record. Specific conditions are determined by University policy and relevant Colleges’ policies.
+
+d. Satisfactory/Unsatisfactory Grades: The purpose of the Satisfactory/Unsatisfactory (S/U) system is to encourage students to venture into courses outside their main areas of familiarity without great risk to the academic record.  The distinction between S and U is not the same, however, as that between pass and fail in the letter-grade system. In the S/U system, S indicates performance that would be graded C- or higher, and U indicates performance that would be graded below a C-. Students earn credit toward the fulfillment of graduation requirements for course grades of S, but not for course grades of U. Grades of S or U are not assigned a numerical value and thus are not averaged with other grades in computing GPA. In calculating GPA, S/U grades are similar to the CR/NCR grades. The maximum number of times that students can exercise the S/U option and other specific conditions is determined by University policy and relevant Colleges’ policies.
+
+### Article 26. Course Grade and GPA Calculation
+
+1. Component grades and final exam grades of a course are ranked on a 100-point scale (from 0% – 100%). Scores are rounded down from .01-0.49 and up from 0.5-0.99 (for example, 59.6% would be rounded up to 60%; 89.4% would be rounded down to 89%).
+2. As per the Ministry of Education and Training’s guideline, students receiving less than 40% out of 100% of total assessment will get a failing grade (F). Colleges may have additional conditions for passing a class beyond getting a minimum of 40% on the total assessment.
+3. The final course grade is the sum of all components and final exam grades multiplied by the corresponding weight, converted to a 4-point scale and letter grade as described in Article 25. The course instructor will be responsible for converting quantitative assessment from the course to the final letter grade. The grading policy should be clearly described in the syllabus before the start of the class and should not be changed during the semester. When multiple instructors are assigned to teach different sessions of the same course, it is expected that a similar grading policy will be used. The College can develop more specific grading and student assessment procedure based on the above guideline and get approval from the Dean (Head of Faculty).
+4. Before calculating semester GPA and cumulative GPA, the letter grade will be converted into a 4-point scale.
+   1. The Semester Grade Point Average (SGPA) is calculated for all courses taken in one semester, including failed courses, but excluding courses graded CR, NCR, IP, MT, I, NR, S, U, W, Z. It is weighted by the credit units for each course taken.
+   2. The Cumulative GPA (CGPA) is calculated for all courses taken by the student during enrollment for a specific program. It reflects the student’s performance for all semesters up to the latest semester of study. The computation is the same as the SGPA except that for course repeats, only the latest attempt is included in the CGPA calculation.
+   3. Grade Point Averages are calculated up to 2 decimal digits with the 3rd digit rounded up toward the nearest integer. (i.e. 3.375 becomes 3.38 whereas 3.372 becomes 3.37).
+   4. Both the SGPA and CGPA are shown on students’ transcripts.
+   5. Results of some courses like National Defense Education and Physical Education are not counted toward GPA. The regulations on result evaluation and granting of certificates for these courses are set out by the Ministry of Education and Training.
+5. The Semester GPA will be used for academic distinction, scholarships, financial aids, and awards after each regular semester (based on the result of the final exam at the first regular exam).
+6. The Semester GPA and Cumulative GPA will be used for consideration of drop-out, academic standing, and classification of awards for graduation (based on the highest final exam score on the exams).
+
+### Article 27. Grade Appeal
+
+1. If a course grade has been calculated incorrectly, students should inform the instructor as soon as grades are released. Where a clerical or administrative error has been made, the department or unit responsible for the course will report the revised gradebook to the Office of Registrar.
+2. If a student’s concern remains unresolved after talking to the instructor, s/he may appeal the decision to the Registrar Office within five (05) working days after the official grade posting on Canvas. The detailed procedure can be found here: <https://policy.vinuni.edu.vn/all-policies/student-grade-appeal-procedure/>
+
+## Chapter V Conferral of Awards and Graduation;)
+
+### Article 28. Recognition of Graduation
+
+1. Students should file an application for graduation during their intended graduation semester in accordance with the procedures announced by the University.
+2. Students who have applied for graduation but do not successfully complete all their academic requirements by the end of the intended graduation semester/term must re-apply for graduation.
+3. To be awarded a degree, a student must satisfy all of the below conditions:
+
+1. 1. Complete the minimum credits requirement within the period of candidature for each program;
+   2. Complete General Education/VinCore and English proficiency requirements;
+   3. Complete the requirements for the major, defined by each College;
+   4. Resolve any “I – Incomplete” grade for required courses from the record;
+   5. Earn a minimum cumulative grade point average (GPA) at 2.00/4.00 for all courses within the degree program;
+   6. Until the time of graduation consideration, not have been proven guilty of a criminal offense.
+   7. Fulfill other requirements of the University’s regulations and procedures;
+
+1. On the proposal of the Graduation Review Board, the Provost shall sign decisions on recognition of graduation for eligible students.
+
+The Graduation Review Board shall be chaired the Provost or a designated person as the Chairperson, Head of Registrar as the Secretary, and other members including the heads of academic units and head of Student Affairs Management.
+
+### Article 29. Conferment and Classification of Awards
+
+1. The degree awarded to students will be determined by the student’s home major, in accordance with MOET’s requirements.
+2. University awards are classified by the relevant College Academic Committee, which makes a recommendation to the Provost for the conferment of awards.
+3. The University grants bachelor’s degrees with the following classifications based on the cumulative grade point average:
+
+- **Classification of Awards**. **Cumulative GPA**.
+- Excellent. 3.60 to 4.00.
+- Very Good. 3.20 to 3.59.
+- Good. 2.50 to 3.19.
+- Marginal. 2.00 to 2.49.
+
+1. Degrees with Excellent and Very Good awards shall be degraded one level if any of the following is true:
+
+1. 1. The number of credits from courses that were re-taken accounts for over 5 percent of total credits in the program; Re-taken courses will include the failed courses only and will not count for courses retaken to improve grades.
+   2. Student has been disciplined at the warning level or higher during their study time.
+
+1. Academic results must be shown on the transcript. The transcript shall record the major (the main major), and/or concentration, and/or (the major-minor).
+2. If the student’s academic performance meets the requirements of Clause 3, Article 28 of this Regulation, for some academic programs (i.e. double degrees) corresponding to different majors, students may be granted other diplomas corresponding to those majors.
+3. Students who still owe certificates of National Defense Education and have not yet complete Physical Education course, but whose maximum time allowed to study has expired, can return to the University to complete the above certificates to be eligible for graduation within three (03) years from the completion of their studies.
+4. Students who do not graduate will be issued an academic transcript which includes all courses completed or enrolled.
+
+## Chapter VI Academic Integrity;)
+
+1. Academic integrity is a significant component of higher education for students to learn, experience, and adopt the highest ethical standards. At VinUniversity, student misconduct in academic matters is not tolerated.
+2. Students of VinUniversity agree to abide by a pledge of academic integrity, whereby students agree individually and collectively that they will not violate academic integrity in any activity that is associated with gradings, such as exams, take-home exams, or reports. In doing so, students will actively discourage others to violate the pledge.
+3. During their professional internships, students must continue to uphold these standards as guided by their industry mentors. In particular, they are expected to abide by non-disclosure agreements as agreed with their host company.
+4. The University’s Academic Integrity policy describes in detail the expectations from all VinUniversity students, faculty, and staff regarding maintaining absolute integrity and honesty in all university activities.
+
+## Chapter VII Implementation;)
+
+### Article 30. Implementation
+
+1. The Academic Regulation document may be revised to comply with any subsequent regulation from MOET.
+2. These Rules and Regulations shall be applied to students enrolled in or after the year 2020.
+3. Faculties, Colleges, the Office of Registrar, and other relevant Units and individuals are responsible for the implementation of these Rules and Regulations.
+4. The Provost has the authority to adjust, supplement, amend, and promulgate these Rules and Regulations to align with practical implementation.
+
+## APPENDIX;)
+
+### Attendance Policy at Medical Doctor Program
+
+### Status and Details
+
+This document specifies rules and regulations that govern educational arrangements, examinations, assessment, grading, and graduation requirements based on an academic credit system for full-time undergraduate students at VinUniversity.
+
+#### Reference Number:
+
+VU\_HT03
+
+#### Document Type:
+
+Policy
+
+#### Issuing By:
+
+Educational Affairs Committee
+
+#### Issuing Date:
+
+Oct 30, 2024
+
+#### Applying for:
+
+All VinUniversity
+
+#### Security Classification:
+
+Public
+
+#### Related Documents and Forms:
+
+Procedural Guidelines for Credit Transfer Requests
+
+### Record of Changes
+
+- Revision: V1.0. Date: May 22, 2020. Author / Editor: Prepared by: Head of Registrar  Reviewed by: Dean and Senior Faculty  Approved by: Provost. Description: Submitted to MOET for legal procedure.
+- Revision: V2.0. Date: May 25, 2020. Author / Editor: Prepared by: Head of Registrar   Reviewed by: Dean and Senior Faculty   Approved by: Provost. Description: Revised version for the academic year implementation.
+- Revision: V3.0. Date: Aug 26, 2020. Author / Editor: Reviewed by: Educational Affairs Committee  Approved by: Provost. Description: Revised Article 5, Article 6, Article 16, Article 17, Article 18, Article 19, Article 22, Article 23, Article 25, Article 26, Article 29..
+- Revision: V4.0. Date: Oct 05, 2020. Author / Editor: Reviewed by: Registrar and Vice-Provost Office  Approved by: Provost. Description: Article 4, Article 6, Article 7, Article 10, Article 11, Article 12, Article 13, Article 14, Article 15, Article 16, Article 17, Article 19, Article 20, Article 21, Article 22, Article 24, Article 28, Chapter VI.
+- Revision: V5.0. Date: Aug 24, 2021. Author / Editor: Reviewed by: Registrar, Deans/Vice-Deans, Program Directors  Approved by: Provost. Description: Articles 4,5,7,9,10,11,13,14,15,16,17,18,19,20,21,22,23,24,25,26.
+- Revision: V5.1. Date: Apr 07, 2023. Author / Editor: Reviewed by: Registrar, Deans/Vice-Deans, Program Directors  Approved by: Provost. Description: Revise to update more details on Article 19: Double Degree.
+- Revision: V6.0. Date: Jun 30, 2023. Author / Editor: Reviewed by: Registrar, Deans/Vice-Deans, Program Directors  Approved by: Provost. Description: Revise Article 12 (Class Attendance) and Article 21 (Course Add, Drop, and Withdrawal)..
+- Revision: V7.0. Date: Dec 28, 2023. Author / Editor: Reviewed by: Registrar, Deans/Vice-Deans, Program Directors  Approved by: Provost. Description: Revise to update Article 2. Medium of instruction and Assessment.
+- Revision: V8.0. Date: May 21, 2024. Author / Editor: Reviewed by: Registrar, Deans/Vice-Deans, Program Directors  Approved by: Provost. Description: Major updates as below: • Article 7: Independent Study Week • Article 12: Add/Drop period • Article 16: Student Classification and Academic Standing • Article 18: Dean’s List selection criteria • Article 25: Remove grade “E” • Article 29: Clarify that grade improvement courses will not be recognized as retaken courses..
+- Revision: V8.1. Date: Oct 30, 2024. Author / Editor: Reviewed by: Associate Vice Provost, Educational Affairs Committee  Approved by: Provost. Description: Review Articles 02, 05, 14, 18, 28.
+
+### PDF version
+
+You can download this document here: Academic Regulations for Full-Time Undergraduate Programs
+
+## Academic Regulations for Master Programs
+
+You can check the Vietnamese version in the PDF Tab.
+
+## **CHAPTER I – GENERAL PROVISION**
+
+### **Article 1. Governing scope and regulated entities**
+
+1. This Regulation prescribes the implementation of master’s degrees at VinUniversity (VinUni), including: general provision, educational arrangement, assessment, academic records, graduation and other related regulations.
+
+2. This document applies to Colleges that have been assigned the task of delivering the master programs, the Office of Planning and University Registrar, other relevant departments/units, and individuals participating in master’s educational affairs.
+
+3. This Regulation is not applicable to foreign-invested training programs and master’s degree programs associated with foreign training institutions and granted by foreign educational institutions.
+
+### **Article 2.** **Academic program**
+
+1. The master’s programs are constructed towards research and/or application approach, meeting the requirements of the Vietnam National Qualifications Framework, regulations on academic program standards of Ministry of Education and Training and the current curriculum development process at the university.
+
+2. Academic programs undertaken in accordance with this Regulation for the awarding of a master’s degree; do not award another higher education degree.
+
+3. The academic programs must specify:
+
+a) A list of relevant bachelor majors (or equivalent or higher) for students who have graduated from university is provided for entry admissions.
+
+b) Foreign languages are accepted as entry requirements and graduation outcomes; the language proficiency of the entry requirement and the graduation requirement must be identical.
+
+4. The academic program must include compulsory contents (Philosophy module) as prescribed by the Ministry of Education and Training.
+
+5. Structure of the academic programs as follows:
+
+a) The research-oriented programs: scientific research load from 24 to 30 credits, including 12 to 15 credits for thesis, 12 to 15 credits for capstone projects, other research topics.
+
+b) Application-oriented programs: internship from 6 to 9 credits; graduate coursework from 6 to 9 credits in the form of a project, graduation thesis, or dissertation.
+
+6. Academic programs that teach and study foreign language must adhere to regulations issued by the Prime Minister.
+
+7. Curriculum-related changes and adjustments are made in accordance with current regulations and communicated to students before being implemented.
+
+### **Article 3. Academic planning and duration of study**
+
+1. Full-time study applies to both research- and application-focused programs. Part-time study is applicable to the application-focused. The length of each study mode must conform to the Academic Regulations issued by the Ministry of Education and Training.
+
+2. To orient students, the College provides, for each study mode, a standard full-course study plan for each academic program. The length of each study mode is specified as follows:
+
+a) The time according to the standard study plan of the whole program must be consistent with the time specified in the Structural Framework of the National Education System, and at the same time ensure that the majority of students complete the academic program;
+
+b) The duration according to the standard study plan of the whole program for the form of part-time study is at least 20% longer than that of the regular training form of the same academic program;
+
+c) According to the standard study plan for the entire program, students must not take longer than two times the allotted time to complete the program in each study mode. Students who do not complete the academic program by the end of the duration of study, even if the time is extended, will be required to withdraw from the university.
+
+3. Study load: The number of credits determines the study load of an academic program, each module, and each course (or subject).
+
+a) A credit is a unit that is used to determine the amount of academic work of a student. A credit is equivalent to 50 hours of study for students, including taught study (contact hours), tutorials, self-managed study, experiential learning, assessments, and exams.
+
+b) 1 credit is roughly equivalent to 15 contact hours for courses that use a lecture or classroom-based instruction; 30 – 45 contact hours for practicum and laboratory courses, 45 – 90 contact hours for fieldwork (in industry, communities, or hospitals) based courses; 45 – 60 hours for courses that involve independent studies such as thesis or internship. A course may comprise various teaching and learning modalities (such as lecture and lab, or lecture and fieldwork). In such cases, the total number of contact hours will be adjusted to be equivalent to other courses with similar requirements. One contact hours is equivalent to 50 minutes.
+
+c) The minimum study load of a program must comply with the Vietnamese Qualifications Framework. It must ensure a minimum of 30 credits for the one-year training program, 45 for the one-and-a-half-year program, and 60 for the two-year program.
+
+### **Article 4. Recognition of student academic performance and credit transfer**
+
+1. Students who have studied in another master’s program or graduated from a specialized academic program may be eligible for recognition and credit transfer for certain courses in accordance with Article 14 of Decree No. 99/2019/ND-CP dated December 30, 2019 of the Government. The number of transferable and accredited credits cannot exceed 30.
+
+2. Students enrolled in an undergraduate program (or equivalent) at the University who meet the following requirements may be permitted to pre-register for some courses in the master program:
+
+a) Achieve at least a Good Academic Standing based on the cumulative GPA.
+
+b) Being ranked as the final-year students of the current academic program
+
+c) Not subject to academic warning or disciplinary action
+
+The number of accredited credits does not exceed 15 credits.
+
+3. The courses will be considered for recognition and credit transfer under the terms of this article if they meet the following criteria:
+
+a) Satisfying the learning outcomes, instruction requirements, study load, method of course assessment and other requirements specified in the master’s academic program;
+
+b) The final grade is from C (or equivalent) or higher;
+
+c) Course completion must occur within five (05) years of the date of the review for recognition or transfer.
+
+4. Only considering academic transcripts of students with defined academic duration; if not clear, a certification of the Colleges where the transcript is issued must be included in the transcript.
+
+5. Credit transfer is evaluated each semester; in exceptional cases, it can be evaluated separately by each academic program or by group of students. The process and procedure of credit transfer is carried out in accordance with the University’s current regulations and policy.
+
+### **Article 5. Medium of instruction and assessment**
+
+Unless otherwise approved by the University Council for a specific course or program of study, English is the medium of instruction (including lectures, tutorials, and laboratories) at the University. Individual instruction or consultation may be in any language.
+
+The College of Arts and Sciences may teach in Vietnamese and use Vietnamese reading materials for the required courses of the Ministry of Education and Training. In such a case, the materials will be provided in English to students as and when requested.
+
+## **CHAPTER II – EDUCATIONAL ARRANGEMENTS**;)
+
+### **Article 6. Academic affairs organizations**
+
+1. The training takes place on the University’s main campus or other campus locations. Activities outside the main campus, practical activities, internships, research, and practical experiences comprise no more than twenty (20) percent of the total academic load. For health sciences education, academic arrangements at practice facilities must comply with government regulations, meet academic program requirements, and be clearly stated in the teaching plan.
+
+2. Standards, roles and responsibilities, and authority of faculty members must comply with the current regulations of Vietnam’s Higher Education Law, the Ministry of Education and Training, and other relevant regulations as prescribed by the University.
+
+3. Evaluation and management of learning outcomes, as well as the planning and organization of instruction, must comply with the applicable provisions of the MOET’s Regulations and the University’s current academic regulations. The evaluation of graduation theses for both research-oriented and application-oriented programs is also governed in accordance with the provisions of this Regulation.
+
+4. The schedule must include the time, location, teaching and learning activities, mode of instruction and curriculum requirements. The teaching and learning study plan for a course within an academic program is evenly distributed throughout the semester’s weeks. In the event that intensive study time is required, the number of lecture hours for each course cannot exceed 15 hours per week and 4 hours per day.
+
+5. The Office of the University Registrar regulates the process of students registering for courses prior to the beginning of each semester in accordance with each academic program, as well as the maximum and minimum number of credits students are permitted to register for in each semester. If a student wishes to enroll in fewer than the required number of credits per semester, the Dean of the Colleges must grant permission.
+
+6. The College may organize online classes with a maximum study load of 30 percent of the total academic load of the academic program, provided the implementation complies with current regulations on the application of information technology to online academic operations and the quality assurance is equivalent to that of in-person classes.
+
+7. In the event of natural disasters, epidemics, or other cases of force majeure, the College implements online teaching mode and course assessment in accordance with the Ministry of Education and Training’s and the University’s Academic regulations.
+
+### **Article 7.** **Course assessment**
+
+1. The course instructor is responsible for proposing component scores, the assessment format and its proportion (for example, forms of formative assessment, the midterm test, and the final exam, etc.), and specifying how to calculate final results in accordance with the academic program’s specific requirements. The assessment plan must be outlined and communicated to students in the course syllabus.
+
+2. The final course grade will only be considered passing if it is at least a C. Students who have failed the course are required to re-enroll and retake the examination in accordance with the current regulations; the final grade is the official course grade.
+
+3. Conversion of course grades from the letter scale and the four-point scale as follows:
+
+- Classification. Letter scale. 4-point scale.
+- a) Passed. A. 4.0.
+- A-. 3.7.
+- B+. 3.3.
+- B. 3.0.
+- B-. 2.7.
+- C+. 2.3.
+- C. 2.0.
+- b) Failed. C-. 1.7.
+- D+. 1.3.
+- D. 1.0.
+- D-. 0.7.
+- F. 0.0.
+
+The College prescribes a 10-point or 100-point scale to convert to a letter scale and a 4-point scale, but the minimum F-point scale is less than 4.0 or 40 percent. For specific courses required by the special requirement, the College/Faculty may specify a higher grade (C+ or higher) in the course outline.
+
+4. Final exam and final assessment of a course
+
+a) The final exam can be administered in-person, online, or in a combination of both and it must be specified in the detailed course syllabus. Online examinations may be used if they are as honest, fair, and impartial as in-person examinations, and they shall contribute no more than 50 percent of the course’s total weighted grade.
+
+b) The College and course instructor are responsible for coordinating with The Office of Planning and Registrar to organize the final examination. The examination questions should reflect the course content and learning outcomes.
+
+c) The College must organize the review and analysis of exam results and course grades on an annual basis in order to design exam questions in a systematic way that ensures exam and assessment accuracy and fairness.
+
+d) The course instructors are responsible for grading. If there is more than one marking instructor and the markings do not match, the instructors must submit a proposal to the Program Director for a final judgment.
+
+e) The component scores and final course grade must be entered into the gradebook in the prescribed format and signed by the course instructor(s) and the Program Director (or an authorized person).
+
+f) If an eligible student misses an exam for the first time for a valid reason and submits an exam cancelation application at least two days prior to the exam date or one day after the exam date if there is a force majeure reason on the exam date (sickness, childbirth, etc.), they will be permitted to retake the exam later and within 12 months (same or later intakes, or make-up exams) and must pay the re-test fees according to regulations (if any).
+
+g) Students will receive a failing grade (0 points) if they miss the final exam for the first time without justification or a valid reason.
+
+5. The course assessment, handling of student complaints, and violations of the code of conduct during course evaluation must adhere to the applicable regulations.
+
+6. The collection of student feedback is conducted in accordance with the University’s existing policies.
+
+## **CHAPTER III – IMPLEMENTATION OF GRADUATION THESIS, CAPSTONE PROJECT AND GRADUATION RECOGNIZATION**;)
+
+### **Article 8. Thesis** **supervision**
+
+1. Students enrolled in a research-oriented program shall carry out a research project with load of 12 to 15 credits, the results of which are presented in the form of a graduation thesis. Students will complete their thesis in at least six (06) months.
+
+2. The thesis is a scientific report that synthesizes the main research findings and meets the following requirements:
+
+a) Contributing to theoretical, academic, or technological development; demonstrating students’ research ability;
+
+b) Conforming to Vietnamese culture, morals, and fine customs;
+
+c) Complying with the University’s academic integrity and current intellectual property laws.
+
+3. Each student is assigned one or two supervisors, one of whom must be a full-time faculty member of the University. An individual supervisor may not supervise more than 05 students at the same time (including students required to complete the graduation project in the application-oriented program); co-supervising two students is equivalent to individually supervising one student.
+
+4. Criteria for the thesis supervisors:
+
+a) Having a professional doctorate degree relevant to the student’s majors and thesis topic;
+
+b) Having the ability to conduct international scientific research and exchange with proficiency through the use of a foreign language and information technology;
+
+c) Having scientific research outcomes related to the thesis topic within five (05) years of the supervision;
+
+d) Other requirements specified by the academic program and the University regulations.
+
+5. The College, The Office of Planning and Registrar shall detail on:
+
+a) Standards, responsibilities and rights of the supervisor;
+
+b) Assignment of thesis topic and supervisor(s); changing thesis topics and supervisors; thesis implementation duration;
+
+c) Thesis requirements for professional and academic content, structure, and format, as well as assurance of academic integrity.
+
+### **Article 9.** **Evaluation of thesis**
+
+1. The thesis is evaluated based on the manner in which it is defended before the Evaluation Committee. The defense session is held in public, with the exception of topics in fields that require confidentiality under the state legislation and international practices.
+
+2. The Thesis Evaluation Committee shall ensure following requirements:
+
+a) The Committee must have at least five (05) members, including the chairman, secretary, two (02) reviewers, and other members; at least one (01) of the reviewers must not be an employee of the Colleges.
+
+b) The members of the Committee must meet the requirements of the thesis supervisor as outlined in this Regulation, and the chairperson must be a full-time university professor or full-time researcher.
+
+c) The supervisor may join the Committee as a member but cannot award assessment points; family members of the student (such as father, mother, spouse, sibling, etc.) are not permitted to participate on the Committee.
+
+3. Students may defend their theses if they meet the following requirements:
+
+a) Completed all required courses of academic programs;
+
+b) Submitted thesis and supervisor consents to its defense;
+
+c) Fulfilled other requirements as prescribed by the University.
+
+4. The thesis defense session will take place when at least two-thirds of the evaluation Committee, comprising the chairman, secretary, and at least one reviewer, are present. The online defense format may be adopted with the consensus of committee members and students; the entire session shall be recorded and archived.
+
+5. The thesis final grade is the average of the points awarded by the members present at the thesis evaluation session, on a scale of 10 points, with a minimum passing score of 5.5.
+
+6. In the event that the thesis is deemed unacceptable, students have three months from the date of the first evaluation committee meeting to amend and resubmit the thesis for a second evaluation, a third evaluation is not authorized.
+
+7. After a successful defense, the full thesis (edited and revised at the Committee’s request, if any) must be resubmitted and archived at the University’s library; published on the University’s website for at least 30 days, with the exception of topics in fields that must remain confidential per state regulations.
+
+8. The Office of the University Registrar shall outline the criteria and procedure for evaluating theses, as well as other regulations pertaining to the evaluation of theses.
+
+### **Article 10. Thesis appraisal**
+
+1. In the event of complaints, denouncements, or other administrative request, the Provost (or a designated authority) shall determine the implementation of a re-evaluation of the thesis’ quality.
+
+2. Thesis appraisal committee shall have the same compositions and standards as the thesis appraisal committee; however, members of the appraisal committee shall not serve on the thesis evaluation committee.
+
+3. The Office of the University Registrar shall propose the formation of the evaluation committee, the procedure for committee meetings, and the processing of thesis appraisal outcomes.
+
+### **Article 11. Supervision, reviews and** **appraisals of graduation project in** **application-oriented programs**
+
+1. In application-oriented programs, students must complete a graduating module of between 6 and 9 credits in the form of a coursework, or capstone project (hereinafter referred to as the project). Students must finish the project in at least three (03) months.
+
+2. The project is evaluated based on the manner in which it is defended before the Evaluation Committee. The defense session is held in public, with the exception of topics in fields that require confidentiality under the state legislation and international practices.
+
+3. The following conditions must be met by the final project report, which is a description of the project’s planning, implementation, and outcome:
+
+a) Proposing and experiencing new models and solutions to tackle real-world problems; showcasing students’ abilities to utilize science and technology to solve problems;
+
+b) Conforming to Vietnamese culture, morals, and customs;
+
+4. Each student has one or two thesis supervisors; one must be a full-time supervisor of the VinUni. At the same time, an independent supervisor must not guide more than 05 students (including the number of students who have completed the graduation part of the application-oriented program); In the case of co-instruction of 2 students, it will be considered as independent instruction of 01 student.
+
+5. The project result assessment council has at least 03 members, including the chairman, secretary and reviewer. In case the council has more than 03 members, the supervisor can join the council as a member, but no assessment points will be given. The defense session is held only when the evaluation Committee is present with the chairman, secretary and reviewer. Online defense can be performed with the consent of members and students; the entire online defense session shall be recorded and archived at the University.
+
+6. In case the project is unsatisfactory, the student may edit and supplement the project to be evaluated for a second time within 45 days from the date of the first assessment council meeting; not organizing the third assessment.
+
+7. After successful defense, the full project report (which has been edited and supplemented at the request of the council, if any) must be submitted and archived at the University’s library; published on the website of the VinUni at least 30 days, except for topics in the fields that need to be confidential in accordance with the State’s regulations.
+
+### **Article 12. Graduation recognition** **and degree awarding**
+
+1. Students must satisfy the following requirements for graduation:
+
+a) Having completed all required courses and successfully defended the thesis and capstone project;
+
+b) Having a satisfactory foreign language proficiency, as evidenced by one of the foreign language certificates at a level equivalent to Level 4 according to the 6-level Foreign Language Competency Framework for Vietnam or other equivalent certificates announced by the Ministry of Education and Training, or a university degree or higher in a foreign language, or a university degree or higher delivered in a foreign language, prior to graduation;
+
+c) Fulfilled other responsibilities as prescribed by the University; not be prosecuted for criminal offenses, and not be disciplined or suspended from study.
+
+2. The Office of Planning and Registrar organizes the student’s review and recognition within 02 months of the student successfully defending the thesis or capstone project; a maximum of 03 months if the appraisal of theses and capstone project is organized.
+
+a) The Graduation Review Committee is formed by the Provost’s decision, based on the Registrar’s proposal. The Chair of the Committee shall be the Provost or a person authorized by the Provost, the Registrar as a permanent member, and the members shall be the Dean/Head of the Faculty, representatives of the related department heads (if any).
+
+b) The Committee shall consider and make a list of eligible students based on the graduation requirements and propose to the Provost to recognize the graduation.
+
+c) The Provost shall issue the Decision on Recognition of Graduation, granting master’s degrees and diplomas to students at the request of the graduation review committee and in accordance with current diploma management regulations.
+
+3. The Office of the University Registrar shall grant master’s degrees to students within one month of the issuance of the decision on graduation recognition, as well as provide a system for looking up diplomas on the VinUni web portal for post-audit work and verifying graduation diplomas.
+
+4. The content of the diploma and diploma appendix must comply with Ministry of Education and Training regulations, with the diploma appendix clearly stating whether the program is research-oriented or coursework-oriented.
+
+5. Students who are unable to graduate within the study period specified in this Regulation will be given a certificate indicating the results of the courses they have completed in the academic program.
+
+6. The Office of Planning and Registrar is in charge of developing the graduation review and recognition process, as well as the issuance of certificates of recognition of accumulated credits for students who have not completed the graduation requirements.
+
+## **CHAPTER** **IV – OTHER REGISTRY REGULATIONS FOR STUDENTS**;)
+
+### **Article 13. Leave of absence or** **withdrawal**
+
+1. Students may take a temporary leave of absence from VinUni while keeping their academic results in the following circumstances:
+
+a) To be assigned to the armed forces;
+
+b) To be mobilized by a competent agency to represent the country to participate in international competitions and tournaments or to perform other national or sectoral tasks;
+
+c) Being sick, pregnant or having an accident requiring long-term treatment, but a written certification from a competent medical examination and treatment facility is required as prescribed by the Ministry of Health;
+
+d) For other personal reasons but must complete at least one semester at the College and not be considered for expulsion or disciplinary consideration.
+
+2. The period of temporary absence from the University specified in point d, clause 1 of this Article must be included in the maximum time specified in this Regulation to complete the degree.
+
+3. Students may withdraw from the University for personal reasons unless they are facing expulsion or serious disciplinary action.
+
+4. The Office of the University Registrar is responsible for outlining the conditions, authority, and procedures for considering temporary leave, return to study, and expulsion, as well as the reservation and recognition of cumulative academic results for students who withdraw from the university.
+
+### **Article 14.** **Program change and college transfer**
+
+1. Students who meet the following requirements are considered for College transfer and academic program transfer:
+
+a) Meet the admission requirements of the academic program to which students are transferring, as well as ensure that the institution to which students are transferring meets all quality assurance requirements and has not yet exceeded the program’s capacity, as required by Ministry of Education and Training regulations.
+
+b) The transfers are approved by both the Deans and/or the Program Directors of the transfer-out and transfer–in colleges or academic programs.
+
+c) The student has enough time to complete the academic program in accordance with this Regulation and is not being disciplined at the written warning level or higher.
+
+2. In circumstances of transferring College or academic programs, the recognition of prior learning and transfer of accumulated credits must comply with this Regulation.
+
+3. The Office of Planning and Registrar is responsible for detailing the conditions, processes and procedures for changing College and changing academic programs.
+
+### **Article 15. Student exchange programs and academic cooperation in** **education**
+
+1. The Provost determines on the recognition of the educational process, course content, and transferred credits of other higher education institutions as the foundation for permitting VinUniversity students to study a number of courses at other high education institutions and vice versa (hereinafter referred to as student exchange program). The academic outcomes of student exchange programs at other higher educational institutions are recognized as academic outcomes at VinUniversity.
+
+In the case of international student exchange and academic cooperation with a foreign university, the existing legislation on academic cooperation and association with foreign countries must be followed.
+
+2. The educational process, course content, and number of credits are recognized based on comparison and equivalence at the level of two academic programs from two institutions; the course level or course group in two academic programs.
+
+The comparison and equivalence are conducted based on the basis of learning outcomes, course content, instructional format, academic management process, teaching methodology, assessment format, and quality assurance.
+
+3. Implementation principles for student exchange programs:
+
+a) There exists a written agreement on academic collaboration regarding the mutual recognition of the academic process, academic content, and credit value for the course, group of courses, or whole academic program.
+
+b) The amount of credits earned at the partner institution cannot exceed 25% of the student’s current enrolled academic program. The length of study for an exchange program may be a full semester, an academic year, or determined by the length of the course(s);
+
+c) The exchange program applies only to the same educational format;
+
+d) The student is not a first-year student, is not facing expulsion, is not subject to written warnings or higher, and has sufficient time to study in accordance with this Regulation;
+
+e) Students have the capacity and financial conditions to participate in the study in accordance with the provisions of the exchange agreement between VinUniversity and the partner institution.
+
+4. The Office of the Planning and Registrar shall clarify the standards and processes for the exchange of students, recognize the credits students have earned and publish the relevant information on the University’s website.
+
+### **Article 16.** **Handling student misconduct or violations**
+
+1. Students who cheat on examinations, tests, and assessments will be disciplined in accordance with the University’s current policies.
+
+2. Students who take the exam for another student or ask another student to take the exam for them are subject to a one-year suspension for the first offense and expulsion for the second offense.
+
+3. Students who violate one of the following regulations will be required to resign from the University; Master’s degrees will be revoked or cancelled in accordance with Ministry of Education and Training laws:
+
+a) Committing acts of fraud in admissions, study, defense of theses or graduation projects, or forging documents for the issuance of diplomas or certificates;
+
+b) Using other people’s academic results or copying or plagiarizing in the thesis or graduation project, and the thesis review committee concludes that the thesis or project does not satisfy even if the utilized, copied, or quoted contents are removed.
+
+c) Requesting or contracting a third party to complete the thesis or project.
+
+4. Conforming to the University Code of Conduct, detailed procedures will govern the processing of student violations.
+
+## **CHAPTER V – IMPLEMENTATION**;)
+
+### **Article 17.** **Reporting and archive**
+
+1. Prior to December 31 of each year, The Office of Planning and Registrar is responsible for preparing a comprehensive report on the master’s degree’s academic database at the university for the Ministry of Education and Training; for fully and accurately updating master’s academic data into the national database system on higher education; for exporting data and reports from the system, advising the Provost to sign the report, and submitting it to the Ministry of Education and Training.
+
+2. Colleges and related departments are responsible for archiving and safely preserving documents related to the master’s academic training process in accordance with their implementation responsibilities outlined in this Regulation, as well as relevant University and Ministry of Education and Training regulations.
+
+3. The matriculation decision, the original academic transcript, the graduation recognition decision, and the original certificate of diploma issuance are permanent archival documents.
+
+4. The thesis was deemed satisfactory or better by the evaluation committee, and the committee’s conclusions and reviewers’ comments are digitized, archived, and preserved in accordance with requirements.
+
+5. Other records pertaining to enrollment and academic operations must be kept and maintained for at least five years (05) after graduation.
+
+6. The destruction of documents whose archiving time has expired shall comply with the State’s current regulations.
+
+### **Article 18.** **Implementation**
+
+1. This Regulation becomes effective on the date of signature and applies to enrollment intakes beginning on the date of its entry into force.
+
+2. Academic regulations can be revised to adjust the latest regulations of the Ministry of Education and Training.
+
+3. Faculties, Colleges, The Office of Planning and Registrar, and other relevant Units and individuals are responsible for the implementation of these Rules and Regulations.
+
+4. During the implementation process, if any problems arise, the leaders of the units shall report to the Provost through The Office of Planning and Registrar to amend and supplement the Regulation. The Provost decides to adjust, supplement, amen
+
+## **APPENDIX**;)
+
+Table of conversion factors of language qualification and certificates to Level 3 and Level 4 according to The **Vietnamese Qualifications Framework** was applied to enrollment and training at the master’s degree.
+
+- **Language**. **Certification / Qualification**. **Level / Grade Scale**.
+- **Equivalent to level 3**. **Equivalent to level 4**.
+- English. TOEFL iBT. 30 – 45. 46 – 93.
+- TOEFL ITP. 450 – 499.
+- IELTS. 4.0 – 5.0. 5.5 – 6.5.
+- Cambridge Assessment English. B1 Preliminary/B1 Business Preliminary/Linguaskill. Grade scale: 140-159. B2 First/B2 Business Vantage/Linguaskill. Grade scale: 160-179.
+- TOEIC (4 skills). Listening: 275-399 Reading: 275-384  Speaking: 120-159  Writing: 120-149. Listening: 400-489 Reading: 385-454  Speaking: 160-179  Writing: 150-179.
+
+VU\_HT02.EN
+
+The Office of Planning and University Registrar
+
+Jun 23, 2021
+
+- Revision: V1.0. Date: Jun 23, 2021. Author / Editor: Prepared by: The Office for Planning and University Registrar. Description: Submitted to MOET for legal procedure.
+- Revision: V1.1. Date: Dec 20, 2022. Author / Editor: Prepared by: The Office for Planning and University Registrar  Reviewed by: Education Affairs Committee (EAC)  Approved by: Provost. Description: First release for implementation.
+
+You can download this document here: Academic Regulations for Master Programs
+
+## Academic Regulations for Doctoral Degree Program
+
+You can check the Vietnamese version in the **PDF Tab.**
+
+## **Chapter** **I: GENERAL PROVISIONS**
+
+### **Article 1. Scope and regulated entities**
+
+1. This Regulation provides general provisions for doctoral program admission, academic operations, and degree awarding.
+2. This Regulation is not applicable to admission to and provision of doctoral programs whose degrees are awarded by foreign educational institutions (including programs provided in cooperation with other countries according to regulations on foreign cooperation and investment in education).
+
+### **Article 2. Academic programs**
+
+1. Doctoral programs shall be formulated, appraised, and promulgated in compliance with the requirements of the Vietnamese Qualifications Framework and regulations on training program standards of the Ministry of Education and Training.
+2. Scientific research shall be a primary and compulsory component of doctoral programs according to the requirements of each field of training and academic discipline. Research outcomes must be presented in doctoral dissertations and relevant scientific publications of postgraduate students.
+3. The minimum study load of 90 credits for Ph.D. candidates with a master’s degree and 120 credits for Ph.D. candidates with a bachelor’s degree.
+
+### **Article 3. Duration and mode of study**
+
+1. The standard duration of a doctoral program shall range from 03 years (36 months) for students with a master’s degree to 04 years (48 months) for those with a bachelor’s program; Each postgraduate student must have a study and research plan that spans the entire standard program duration and is approved in conjunction with the postgraduate admissions decision. (made using the form in Appendix I).
+2. Every postgraduate student may complete their programs no more than one year (12 months) earlier or later than their defined study and research plan, but the total duration of study shall not exceed six years (72 months) from the time the postgraduate admissions decision is in effect until the time the dissertation is submitted to the University (before the independent defense and establishment of the dissertation examination committee of their training institution).
+3. Doctoral programs shall be offered in the full-time mode of study; postgraduate students must spend adequate study and research time at the University in accordance with approved plans; the full-time mode of study requires enrollment in 30 credits per year.
+
+### **Article 4. Standards for instructors of doctoral programs**
+
+1. Requirements for instructors of doctoral programs:  
+   a) Be Vietnamese citizens or foreign citizens meeting the requirements in Clause 1 Article 54 of the Law on Higher Education (amended in 2018) and other relevant law provisions;  
+   b) Hold the title of professor or associate professor or Doctor of Science degree or doctorate in a specialization suitable for units of study and subjects (hereinafter collectively referred to as “units of study”) that they are in charge of;  
+   c) Have foreign language skills and the ability to use information technology in teaching, research, and international exchange and cooperation in the doctoral program’s specialized areas.
+2. Additional requirements for persons without the title of professor or associate professor:  
+   a) Have taught undergraduate or master’s programs for at least 01 year (12 months) since they were awarded a doctorate;  
+   b) Within 05 years (60 months) before they are assigned to teach in a doctoral program, they publish 02 scientific papers and/or articles in publications assigned at least 0,75 point by the State Council for Professorship as the first author or corresponding author; or 01 monograph distributed by Vietnamese and international publishers or 01 chapter of a reference book distributed by the international publisher as the author or co-author (hereinafter collectively referred to as “main author”), and their publications must be related to the program’s specialization;
+
+### **Article 5. Standards for** **Supervisors in doctoral programs**
+
+1. The primary supervisor, secondary supervisor, and independent supervisor must meet the standards for doctoral program instructors outlined in Article 4 of this Regulation.
+2. Within 05 years (60 months) before issuance of the decision on Ph.D. student recognition, the primary supervisor, independent supervisor, the co-supervisor (if the primary and secondary ones are not differentiated) must produce more research outcomes on a specialized area related to the topic of the dissertation that they will provide instructions for. To be specific:  
+   a) be the main author of a scientific conference report/ scientific article published in a publication included in the Web of Science or Scopus List (hereinafter collectively referred to as “WoS/Scopus List”) or a chapter of a reference book distributed by a reputable international publisher, or an article published on a Vietnamese academic journal assigned at least 0,75 point by the State Council for Professorship, or a monograph distributed by a reputable Vietnamese or international publisher; the publication must earn at least 4,0 points in total according to maximum score stipulated by the State Council for Professorship for each type of project (points shall not be distributed when there are co-authors); or  
+   b) be the author or co-author of at least 01 result of a scientific or technological research or application registered and awarded a national or international patent; or at least 01 official award of a national or international competition recognized by the competent authority for the fields of arts, physical training, and sports.
+3. Each PhD student may have one or two supervisors, one of whom must be full-time or have a teaching/scientific research contract with the University as prescribed by law; work full-time at the University for a contract term appropriate to the Ph.D. student’s study and research plan.
+
+### **Article 6. Rights and responsibilities of instructors and supervisors of doctoral programs**
+
+1. Duties and rights of instructors of doctoral programs are provided in regulations of Articles 55 and 58 of the Law on Higher Education (amended in 2018), training institution regulations, and relevant law provisions.
+2. A professor title holder may independently provide supervision for no more than 07 Ph.D. students; a holder of the associate professor title or a Doctor of Science degree may independently provide supervision for no more than 05 Ph.D. students; and a doctorate holder may independently provide supervision for no more than 03 Ph.D. students simultaneously. Co-supervision of a Ph.D. student shall be equivalent to independent supervision of 0,5 Ph.D. student.
+3. Responsibilities of supervisors:  
+   a) Annually approve the student’s study and research plan; instruct, support, evaluate, supervise, and expedite study and research conducted by Ph.D. students in accordance with approved plans;  
+   b) Propose or give opinions on changes made to the study and research plans;  
+   c) Propose that the Ph.D. student deliver dissertation defenses at College dissertation examination committees and dissertation defenses at University dissertation examination committees.  
+   d) Perform other duties and exercise other powers according to University Regulations.
+
+## **Chapter II:** **ADMISSION**;)
+
+### **Article 7. Eligibility requirements**
+
+1. General requirements for applicants:  
+   a) Hold a master’s degree or bachelor’s degree classified as good or higher in a suitable academic discipline or a qualification equivalent to level 7 of the Vietnamese Qualifications Framework in some special academic disciplines suitable for the field of the target doctoral program;  
+   b) Meet admission requirements of training program standards promulgated by the Ministry of Education and Training and of the target doctoral program;  
+   c) Have research experience evidenced by a master’s dissertation of a research-oriented training program; or a published scientific report or article; or working for at least 02 years (24 months) as a lecturer or researcher of a training institution or scientific and technological organization;  
+   d) Have a draft research outline and draft course-wise study and research plan.
+2. Vietnamese applicants must meet foreign language requirements as evidenced by any of the following degrees and certificates:  
+   a) A bachelor’s degree or higher awarded by a foreign training institution, Vietnamese branch of a foreign training institution or Vietnamese training institution to learners of a full-time program taught in a foreign language;  
+   b) A bachelor’s degree in a foreign language awarded by a Vietnamese training institution;  
+   c) Any of the foreign language proficiency certificates mentioned in Appendix II of this Regulation that is unexpired on the application date or any other foreign language proficiency certificate equivalent to level 4 of Vietnam’s language proficiency framework announced by the Ministry of Education and Training.
+
+### **Article 8. Admission and recognition of Ph.D. students**
+
+1. The admission can be implemented once or more times per year if the quality assurance conditions for doctoral programs are met in accordance with existing regulations.
+2. Admission methods include admission without examination, which ensures a transparent, fair, impartial, and honest assessment of applicants’ knowledge and capacity. When the University meets the quality assurance requirements for in-person admission, it may organize online admission.
+3. The admission announcement shall be published on their websites at least 30 working days before the application period begins, and it must include information on eligibility requirements, academic discipline, and suitable specialized requirements; admission quota; application content, admission plan, result announcement time, and enrolment time; tuition, tuition reduction, exemption, and assistance for Ph.D. students during their study (if any), and other necessary information.
+4. During admission, the University shall perform internal inspection and supervision as per existing regulations.
+5. A Ph.D. student recognition decision must include the following details: the student’s name, academic discipline, provisional dissertation topic, supervisor or co-supervisor, home institution, length of study, and study and research plan.
+6. The Admission Department and related units shall stipulate admission plans, admission announcements, admission methods, admission organization and PhD student recognition; archiving for the purposes of management, appraisal, supervision, and inspection; responsibilities and sanctions for violations committed by groups, units and individuals involved in admission organization and Ph.D. student recognition.
+
+## **Chapter III:** **ORGANIZATION AND MANAGEMENT OF DOCTORAL PROGRAM PROVISION**;)
+
+### **Article 9. Organization of academic activities**
+
+1. Doctoral programs shall be provided in the full-time mode of study according to regulations in Clause 3 Article 3 of this Regulation at VinUni, excluding some surveys, research, experimenting, and online training activities that may take place off-campus.
+2. Colleges may organize classes and assessments of units of study online or online in combination with offline when they meet existing requirements for the application of information technology in online training management and organization; and have solutions to ensure that the quality of these classes is not lower than that of offline classes.
+3. Assessment and grading in doctoral programs may be carried out in compliance with the academic regulations governing undergraduate programs.
+4. Colleges and the Office of University Registrar shall stipulate the learning and research activities of Ph.D. students; schedules, locations, and methods; methods for assessment and grading, and other relevant regulations concerning the organization of doctoral program provision.
+
+### **Article 10. Changes made during the course of a training program**
+
+1. Ph.D. students and their supervisors may propose changes to the dissertation topic, addition of another supervisor, change of supervisor, change of home College, and transfer to another College. These changes shall entail a revision of the study and research plan to ensure that the training duration complies with regulations in Article 3 of this Regulation.
+2. Ph.D. students will be forced to suspend from VinUni in any of the following cases:  
+   a) Fail to complete their programs within the time limits set out in Clause 1 and Clause 2 Article 3 of this Regulation;  
+   b) Commit a grave violation against regulations on responsibilities of Ph.D. students or regulations of law as concluded by a specialized council or competent authority;  
+   c) Commit a violation against the regulations of VinUni that results in expulsion.
+3. The Colleges and Office of University Registrar regulate for the following matters:  
+   a) Change to the dissertation topic, the addition of another supervisor or change of supervisor, change of home College and transfer to another College;  
+   b) Reduction or extension of study and research time of Ph.D. students; cases resulting in expulsion and expulsion procedures.
+
+### **Article 11. Recognition and transfer of study and research results**
+
+1. Study and research results accumulated by a Ph.D. student in a doctoral program may be retained and considered for recognition and transfer in any of the following cases:  
+   a) The Ph.D. student is expelled and wishes to study a master’s program in a corresponding academic discipline if they meet regulations of the existing regulation on graduate program admission and graduate education;  
+   b) The Ph.D. student transfers to another discipline or the Colleges;  
+   c) The Ph.D. student withdraws from the doctoral program, reapplies, and is recognized as a new Ph.D. student.
+2. The recognition and transfer of a Ph.D. student’s study and research results must be conducted in accordance with the training program’s objectives and a proposal from a specialized committee. In the event that the Ph.D. student transfers to a different College or becomes a new Ph.D. student, study and research results representing no more than fifty (50) percent of the total load of the new program may be recognized and transferred.
+3. The Office of University Registrar regulates deferring time limits, the composition of specialized committees, and procedures for the recognition and transfer of study and research results.
+
+### **Article 12. Rights and responsibilities of** **Ph.D. students**
+
+Every Ph.D. student has the following rights and responsibilities:
+
+1. Exercise the rights and fulfill the responsibilities mentioned in Articles 60 and 61 of the Law on Higher Education (amended in 2018).
+2. Formulate and propose detailed study and research plan for each year based on the approved course-wise plan in the Ph.D. student recognition decision, which shall include a plan for working and reporting to the supervisor; follow the plans approved by the supervisor and the College; report on study and research progress and results to the College on a biannual basis (06 months); propose changes to their study and research to the supervisor and the College.
+3. Participate in academic activities at the College as a full-time researchers or teaching assistant; participate in research projects and duties as assigned by the supervisor.
+4. Comply with regulations of academic integrity; ensure that published outcomes are produced from their own research with the support of the supervisor; acknowledge and cite all relevant individuals, groups, and organizations (if any).
+5. Exercise other rights and fulfill other responsibilities according to VinUni’s regulations.
+
+### **Article 13. Rights and Responsibilities of** **the College**
+
+The College has the following rights and responsibilities:
+
+1. Propose the supervisors whose specializations are suitable for dissertation topics of the Ph.D. students
+2. Approve detailed yearly study and research plans for Ph.D. students; facilitate, support, expedite, supervise, and inspect compliance with Ph.D. students’ study and research plans.
+3. Organize periodic scientific activities for PhD students; examine dissertations of PhD students; approve proposals for dissertation defense at dissertation examination committee of the University.
+4. Exercise other rights and fulfill other responsibilities according to the University.
+
+## **Chapter IV:** **DISSERTATION EVALUATION AND DOCTORATE AWARDING**;)
+
+### **Article 14. Dissertation evaluation at the** **College** **level**
+
+1. The Colleges shall examine a dissertation when the Ph.D. student meets the following requirements and additional requirements for each academic program (if any):  
+   a) The student has completed all courses of study in the program;  
+   b) The supervisor or co-supervisor proposes that the draft dissertation be examined by the academic unit;  
+   c) The student is the main author of a scientific conference report/ scientific article published in a publication included in the WoS/Scopus List or a chapter of a reference book distributed by a reputable international publisher, or an article published on a Vietnamese academic journal assigned at least 0.75 points by the State Council for Professorship concerning the student’s academic discipline, or a monograph distributed by a reputable Vietnamese or international publisher; the publication must earn at least 2.0 points in total according to maximum score stipulated by the State Council for Professorship for each type of project (points shall not be distributed when there are co-authors) and be relevant and have a substantial contribution to the research results presented in the dissertation;  
+   d) The requirements in Point c of this Clause may be substituted by evidence of being the author or co-author of 01 result of a scientific or technological research or application registered and awarded a national or international patent; or 01 official award of a national or international competition recognized by the competent authority for the fields of arts, physical training, and sports; such achievement must be relevant and have substantial contribution to the research results presented in the dissertation.
+2. Colleges shall stipulate the examination of dissertations at management units to ensure that the examination is of scientific nature and assists PhD students in completing their dissertation before independent dissertation examination and defense at dissertation examination committees of VinUni.
+
+### **Article 15. Independent dissertation** **assessment**
+
+1. Dissertations of Ph.D. students must undergo an independent assessment before they are defended by dissertation examination committees of the University. Within 06 months after a PhD student submits the dissertation approved by the management unit, the training institution shall complete an independent examination of the dissertation; for cases requiring a second independent examination according to regulations in Clause 3 of this Article, the abovementioned time limit may be extended by 03 months at the maximum.
+2. Every dissertation requires assessment by 02 scientists or experts who are not employed by VinUni, are specialized in an area suitable for the dissertation’s topic and meet the requirements for independent instructors mentioned in Article 5 of this Regulation. Independent examiners must not have any interest directly related to the Ph.D. student and instructor; not be the mother, father, spouse or biological sibling, or child of the Ph.D. student; not offer direct professional cooperation or support relevant to the dissertation’s content to the Ph.D. student and instructor during the dissertation formulation process.
+3. Independent assessment must take place in an impartial and transparent manner. The conclusions of the independent examiners for a dissertation must specify whether they approve of the dissertation professionally. The dissertation will be considered to have passed the independent examination when the two examiners give their approval. If one examiner disapproves, the training institution shall send the dissertation to another independent examiner for their opinion, which shall provide the basis for the decision. If the two examiners do not approve of the professional quality of the dissertation, the training institution shall request the Ph.D. student and instructor to revise the dissertation and perform a second independent examination. Do not perform a third independent examination.
+4. Information on independent examiners shall be kept confidential from the Ph.D. student and instructor. Independent examiners shall not have contact with or request the Ph.D. student to provide information or explanations for the examiners’ opinions. Any contact with the examiners during the independent examination shall be undertaken by VinUni. All explanations by the Ph.D. student must be sent to the College and presented in the dissertation defense session.
+5. The Office of University Registrar stipulates procedures for independent examiner selection and collection and handling of opinions from independent examiners; and protection of identities and personal information of independent examiners.
+
+### **Article 16. Dissertation examination at the** **University level**
+
+1. A doctoral dissertation may be defended at a dissertation examination council of VinUni when it meets the following requirements:  
+   a) The dissertation is a scientific report consolidating the study and research results of the Ph.D. student, and showing that the Ph.D. student is capable of conducting research independently, creating new knowledge that contributes to the scientific knowledge of the research field, or proposing new ideas and solutions for existing issues in the research field under actual circumstances;  
+   b) The dissertation passes independent examination;  
+   c) The dissertation abides by the training institution’s regulations on format, plagiarism control, and academic integrity standards; specify references concerning general research results of the PhD student and references from other authors (if any) and comply with other regulations of law on intellectual property.
+2. VinUni regulates the establishment of dissertation examination committees and includes the following requirements:  
+   a) Each committee shall consist of at least 05 members; the number of members without a professor or associate professor titles shall not be more than 02 persons and the number of members not affiliated to VinUni shall be at least 02 persons;  
+   b) The committee shall comprise a chairperson, secretary, examiners, and other members, with 01 examiner affiliated with the training institution and 01 examiner unaffiliated with the training institution; the examiners shall not be co-authors with the Ph.D. student in scientific publications related to the dissertation; the committee chairperson shall be a professor or associate professor in an academic discipline suitable for the specialized area of the dissertation’s topic, tenured researcher or lecturer of the training institution; 01 instructors of the Ph.D. student may join the committee as a member;  
+   c) Research capacity standards applicable to committee members shall be similar to research capacity standards for main instructors mentioned in Article 5, and the committee secretary must meet requirements for lecturers of doctoral programs mentioned in Article 4 of this Regulation;  
+   d) Parents, spouses and biological children, and siblings of the Ph.D. student may not join the committee.
+3. Within 03 months after a dissertation passes the independent examination, VinUni shall convene the dissertation examination committee. VinUni shall decide to organize a dissertation examination session for the Ph.D. student in compliance with the following requirements:  
+   a) Time and location of the examination session and the dissertation’s summary shall be posted on the website of the training institution (excluding cases of confidential dissertation examination);  
+   b) The examination session may not take place if less than 05 committee members are present, or more than 01 member is absent;  
+   c) An online dissertation examination session must be joined by at least 03 committee members and the Ph.D. student; in case of a natural disaster or epidemic or force majeure event, follow guidelines of the Minister of Education and Training;  
+   d) The Office of University Registrar shall prepare for the dissertation examination session; the Ph.D. student and instructor may not contact committee members before the examination session.
+4. The committee shall vote and resolve whether to pass or not pass the dissertation; request for any necessary revision if the dissertation is passed; propose or not propose reexamination if the dissertation is not passed. The dissertation will be passed if no member or only one member of the committee present in the examination session disapproves of the dissertation professionally. Dissertation examination sessions shall be recorded in writing; online examination sessions must have audio and video recordings, which shall be retained at the training institution.
+5. The Office of University Registrar shall stipulate dissertation examination, including requirements for Ph.D. students before dissertation examination; procedures for the establishment of dissertation examination committees, standards, and duties of each committee member; change of committee members and procedures for online and offline dissertation examination sessions of training institutions.
+
+### **Article 17. Confidential dissertation** **evaluation**
+
+1. If the dissertation topic is related to a state secret included in a state secret list stipulated by the competent authority, the training institution shall determine the confidential nature of the topic immediately upon issuance of the Ph.D. student recognition decision, submit a report to the Ministry of Education and Training together with evidence and obtain approval of the Ministry of Education and Training in writing.
+2. Ph.D. students doing dissertation topics determined as confidential must meet general requirements for Ph.D. students; requirements in Points c and d Clause 1 Article 14 of this Regulation may be substituted by internal reports with scientific and practical values in the research field verified by the training institution.
+3. The Office of University Registrar shall stipulate the organization of training, research, dissertation examination, and management of relevant documents according to law regulations on confidentiality.
+
+### **Article 18. Dissertation re-****evaluation**
+
+1. In case a dissertation is not passed by the dissertation examination committee of the training institution in the first defense session but the committee proposes a re-defense, within 06 months after the first dissertation examination, the Office of University Registrar shall decide to establish an examination committee and organize a second dissertation defense for the Ph.D. student.
+2. Do not organize dissertation re-examination without a proposal of the first dissertation examination committee; do not organize a third dissertation examination.
+3. The Office of University Registrar regulates the time and procedures for the second dissertation examination. The second dissertation examination committee must consist of at least 03 members of the first committee, including all members who do not approve of the dissertation.
+
+### **Article 19. Doctorate recognition and awarding**
+
+1. A Ph.D. student will be considered for qualification recognition and doctorate awarding when they meet the following requirements:  
+   a) The Ph.D. student’s dissertation has been passed by the dissertation examination committee of the training institution;  
+   b) The Ph.D. student has submitted the final dissertation with their signature, confirmation of the instructor, and confirmation of the chairperson of the dissertation examination committee after revision (if any) to the training institution (in physical and electronic forms);  
+   c) The Ph.D. student has submitted the final dissertation with their signature, confirmation of the instructor, and confirmation of the training institution in summary and in full to the National Library of Vietnam (in physical and electronic forms).
+2. The Office of University Registrar will post the final dissertation in full on the website (excluding confidentially examined dissertations) for 03 months after the Ph.D. student meets the requirements in Clause 1 of this Article.
+3. After the period of time mentioned in Clause 2 of this Article, the Office of University Registrar shall consider and issue a decision to recognize the doctorate of the Ph.D. student.
+4. Office of University Registrar shall formulate an application for doctorate recognition and awarding, which includes:  
+   a) Record of the dissertation examination session at the training institution;  
+   b) Decision to pass the dissertation of the dissertation examination committee of the training institution;  
+   c) Record of checking of votes and dissertation assessment sheets with signatures of all committee members present in the dissertation examination session;  
+   d) Written comments and assessments of the instructor; written confirmation of dissertation revision of the instructor and chairperson of the dissertation examination committee (if any);  
+   e) Other documents as per regulations of the training institution.
+5. The Office of University Registrar shall award a doctorate to the Ph.D. student within 30 working days from the entry into force of the doctorate recognition decision.
+
+## **Chapter V:** **IMPLEMENTATION**;)
+
+### **Article 20. Formulation and implementation of regulations**
+
+1. Pursuant to this Regulation and other relevant applicable regulations, training institutions shall:  
+   a) Formulate, promulgate, and implement regulations of their institutions; these regulations must be specific and may provide equivalent or stricter requirements but shall not contradict regulations of this Regulation;  
+   b) Fulfill duties concerning education quality assurance according to regulations in Article 50 of the Law on Higher Education (amended in 2018);  
+   c) Fulfill duties and exercise powers concerning scientific and technological activities according to regulations in Article 41 of the Law on Higher Education (amended in 2018);  
+   d) Reinforce academic integrity; supervise and control anti-plagiarism; develop sanctions, strictly handle violations; ensure the honesty of content of doctoral dissertations evaluated at their institutions;  
+   e) Formulate policies promoting gender equality in doctoral education to contribute to the national strategy for gender equality in education and training;  
+   f) Plan and organize an annual inspection of compliance with regulations on doctoral program admission, doctoral program organization, and doctorate awarding of their institutions;  
+   g) Before the start of each course, disseminate and provide guidance for Ph.D. students on training institution regulations and other regulations related to study, research, and rights and responsibilities of Ph.D. students;  
+   h) Perform internal inspection of execution of plans, programs, training institution regulations, and other tasks concerning admission, training, and doctorate awarding; and be subject to the inspection and supervision of the Ministry of Education and Training and competent authorities as per existing regulations.
+2. Training institutions shall exercise accountability according to regulations in Clause 4 Article 13 of the Government’s Decree No. 99/2019/ND-CP and other relevant law provisions.
+
+### **Article 21. Retention, reporting, and information publication requirements**
+
+1. Responsibilities of Colleges & Office of University Registrar:  
+   a) Complete internal databases and update data on doctoral education to the national higher education database, including information on admission; information of Ph.D. students; information of lecturers and instructors; information on results of scientific and technological activities related to doctoral education; information on doctorate awarding; completed dissertations of Ph.D. students submitted to National Library of Vietnam in summary and in full;  
+   b) Archive dossiers on admission, training process, and degree awarding of Ph.D. students as per existing regulations.
+2. On the last day of each even-numbered month, training institutions shall submit reports on lists of Ph.D. students who have defended their dissertations and dissertations approved by dissertation examination committees of training institutions in the 02 immediately preceding months to the Ministry of Education and Training (using the form in Appendix III); training institutions shall also submit periodic reports before December 31 of every year (using the form in Appendix IV) and ad hoc reports upon request.
+3. Training institutions shall publish the following information on their websites before admission and training programs start:  
+   a) Training institution regulations and relevant training management regulations concerning admission, doctoral programs, and doctorate awarding;  
+   b) Quality assurance conditions per existing regulations of the Ministry of Education and Training and other information according to regulations.
+
+### Appendix list\_Academic Regulations for Doctoral Degree Program
+
+This Regulation provides general provisions for doctoral program admission, academic operations, and degree awarding
+
+VU\_HT01.EN
+
+Jun 25, 2021
+
+- Revision: V1.0. Date: Jun 25, 2021. Author / Editor: Prepared by: the Office of Planning and Registrar. Description: Prepare for legal procedure.
+- Revision: V2.0. Date: May 15, 2023. Author / Editor: Prepared by: the Office of Planning and Registrar   Reviewed by: Educational Affairs Committee (EAC)  Approved by: Provost. Description: Review and amend to apply for the academic year 2022-2023.
+
+You can download this document here: Academic Regulations for Doctoral Degree Program
+
+## Academic Regulations for Graduate Medical Education (GME)
+
+## **Chapter I:** **General Provision**
+
+### **Article 1. Governing Scope and Regulated Entities**
+
+This document specifies rules and regulations that govern educational arrangements, evaluations, assessment, grading, and graduation requirements based on an academic credit system for full-time Residents at VinUniversity.
+
+### **Article 2. Glossary**
+
+1. Accreditation
+
+A voluntary process of evaluation and review based on published requirements and following a prescribed process, performed by a non-governmental agency of peers.
+
+1. Clinical
+
+Refers to the practice of medicine in which physicians assess patients (in person or virtually) or populations in order to diagnose, treat, and prevent disease using their expert judgment. It also refers to physicians who contribute to the care of patients by providing clinical decision support and information systems, laboratory, imaging, or related studies.
+
+1. Clinical Competency Committee (CCC)
+
+A required body comprising three or more members of the active teaching faculty that is advisory to the program director and reviews the progress of all residents/fellows in a program.
+
+1. Competencies
+
+Specific knowledge, skills, behaviours, and attitudes and the appropriate educational experiences required of residents/fellows to complete GME programs.
+
+1. Core Faculty
+
+All physician faculty members who have a significant role in the education of residents/fellows and who have documented qualifications to instruct and supervise. Core faculty members devote at least 15 hours per week to resident, education and administration. All core faculty members should evaluate the competency domains, work closely with and support the program director, assist in developing and implementing evaluation systems, and teach and advise residents/fellows.
+
+1. Designated Institutional Official (DIO)
+
+The individual in a sponsoring institution who has the authority over and responsibility for all ACGME-I-accredited GME programs.
+
+1. Faculty
+
+The collective body of physicians who have individually received a formal assignment to teach resident/fellow physicians. At some sites appointment to the medical staff of the hospital constitutes appointment to the faculty.
+
+1. Graduate Medical Education (GME)
+
+The period of didactic and clinical education in a medical specialty that follows the completion of a recognized undergraduate medical education, and which prepares physicians for the independent practice of medicine in that specialty area, also referred to as ‘residency education.’ The term ‘graduate medical education’ also applies to the period of didactic and clinical education in a medical subspecialty which follows the completion of education in a recognized medical specialty and which prepares physicians for the independent practice of medicine in that subspecialty area.
+
+1. Program
+
+A structured educational experience in GME designed to conform to the Foundational and Advanced Specialty Requirements of a particular specialty or subspecialty, the satisfactory completion of which may result in a physician’s eligibility for certification or credentialing to practice independently in a given specialty.
+
+1. Program Coordinator
+
+The lead administrative person who assists the program director in accreditation efforts, educational programming, and support of residents.
+
+1. Program Director
+
+The one physician designated with authority over and accountability for the operation of a residency program.
+
+1. Program Evaluation
+
+Systematic collection and analysis of information related to the design, implementation, and outcomes of a GME program, for the purpose of monitoring and improving its quality and effectiveness.
+
+1. Program Evaluation Committee (PEC)
+
+The committee appointed by the program director to conduct program review as needed and the annual program evaluation.
+
+1. Rotation
+
+An educational experience of planned activities in selected settings, over a specific time period, developed to meet specific goals and objectives of the program.
+
+1. Sponsoring Institution
+
+The organization (or entity) that assumes the ultimate financial and academic responsibility for a Graduate Medical Education (GME) program. The sponsoring institution has the primary purpose of providing educational programs and/or health care services (e.g., a university, a medical school, a hospital, a school of public health, a health department, a public health agency, an organized health care delivery system, a medical examiner’s office, a consortium, or an educational foundation).
+
+## **Chapter II:****Admissions**;)
+
+### **Article 3. Candidates**
+
+Physicians graduates from an accredited medical university, university of medicine and pharmacy, or other medical training institutions. Residency applicants will have successfully completed all required entry examinations prior to residency matriculation. Optimally, medical school graduation and residency matriculation should coincide with VinUniversity’s (The University or VinUni) enrollment year.
+
+Non-Vietnamese medical school graduates who wish to apply for residency training at VinUni must meet all the requirements outlined in Article 2.2 of this Regulation and be approved by the Ministry of Foreign Affairs of the Socialist Republic of Vietnam.
+
+### **Article 4. Application conditions**
+
+Graduating medical students must satisfy the following prerequisites to take the resident entrance exam:
+
+a) Possess a medical doctor’s university diploma from a medical training institution in Vietnam with a 6-year average overall score of at least 7.0 on a scale of 10 or 2.8 on a scale of 4. Applicants from foreign medical training institutions must possess a Ministry of Health-approved diploma.
+
+b) The year of graduation for Graduate from Vietnam College of health coincides with the year of enrollment at VinUni.
+
+c) During the bachelor’s program, they are not disciplined with a warning or higher, nor are they prevented from studying (except for health reasons).
+
+### **Article 5. Enrollment criteria**
+
+1. Every January, the Admissions Committee of VinUni determines enrollment targets based on the capacity of VinUni, and then registers and seeks approval for this number of incoming residents with the Vietnamese Ministry of Health according to general regulations.
+2. The basis for calculating the annual enrollment target of VinUni. Please refer to MOH regulations on residency training.
+
+1. The admissions committee shall ensure that the number of resident matriculations each year is aligned with the quota decided by the admissions committee.
+
+### **Article 6. Organize entrance exam.**
+
+The enrollment of residents is conducted once a year in accordance with the Residency admission regulations of VinUni.
+
+The VinUni residency admission process includes the following steps:
+
+1. Candidates submit their application on the online enrollment portal of VinUni.
+2. The application is reviewed and assessed according to the criteria approved by the Admission Committee of VinUni, College of Health Sciences and Residency Programs.
+3. Qualified candidates will participate in a standardized licensing exam process as determined by VinUni.
+4. Candidates will be invited to interview with the program directors and clinical faculty based on the results of the application review and entrance exam.
+5. Final selection of residents is based on the results of the application review, entrance exam, interview, and overall assessment by the Residency program Committee.
+
+## **Chapter III:****Residency Program**;)
+
+### **Article 7. Development and approval of curriculum**
+
+Please refer to Circular 17/2021/TT-BGDĐT of the Minister of Education and Training promulgating Regulations on standards of training programs, and Decision No. 19/2006/QD-BYT dated July 4, 2006, of the Minister of Health on promulgating the Regulation on Training of Resident Doctors.
+
+### **Article 8. Language of Instruction and Assessment**
+
+Unless otherwise approved by the University for a specific course or program of study, English is the medium of instruction (including lectures, tutorials, case conferences, and Simulation Centre activities) at the University. Individual instruction or consultation may be in any language.
+
+In order to provide safe and effective patient care, communication within Clinical Training Sites may occur in Vietnamese. For example, communication with patients and families, written/spoken communication with other healthcare staff, and written clinical documentation. Whenever able, verbal teaching and discussions between Residents and Clinical Faculty members should occur in English. Examples include Attending Rounds, Outpatient Rotations, Program Director Rounds, etc.
+
+The Residency Program Faculty may teach in Vietnamese and use Vietnamese reading materials for required courses of the Ministry of Health. In such a case, the materials will be provided in English to residents when requested.
+
+Other courses may be offered in other languages with approval of the University Council.
+
+1. Academic and Clinical Rotation planning shall be arranged by each Residency Program and based on ACGME-I guidelines, and PGY level, MOH regulations.  
+   a) A program of study is designed for residents to complete a specific curriculum in a certain period of time. The minimum of duration of residency training is 3 years.
+
+b) An academic year has approximately 48 weeks of education activities which can be a combination of courses and scheduled clinical rotations. There are 4 weeks of vacation annually for each resident who is enrolled in a Residency Program.
+
+1. The Dean, upon the Program Director’s recommendation, can extend the duration of study for residents identify by the CCC or facing unusual circumstances (e.g. sickness, maternity, civil service etc.) upon petition of the resident on a case-by-case basis.
+
+### **Article 9. Training forms**
+
+Residency training shall have only one form which is formal and full-time, and require trainees to take up permanent residence at VinUni or participating hospitals or other medical internship facilities conforming to specific requirements of each specialty to learn and work regularly (except classes held under the training establishment’s regulations).
+
+### **Article 10. Residency Training Academic Program and Syllabi**
+
+1. A Residency Program involves a hierarchy of PGY levels; educational objectives and learning outcomes; required credits; an academic plan associated with the time to obtain a Residency Training Degree; a teaching methodology and a mode of delivery; a mode to assess academic performance and clinical competency milestones; a supportive clinical training environment; and other conditions for its implementation. Each Residency Program needs to comply with the current requirements by the MOH, the current university approval process, and accreditation requirements in the future.
+2. Each Residency Program shall incorporate a competency-based training model that meets both MOH and accreditation requirements for mastery of a clinical specialty. These curricula involve at least 50 percentage of defined clinical rotations (Core Rotations/ Subspecialty/ Elective), demonstrated competency of specified medical/surgical procedures, and progressive achievement of defined milestones for 6 core competencies (Medical Knowledge, Patient Care, Interpersonal & Communication Skills, Professionalism, Practice-Based Learning and Improvement, Systems-Based Practice). Each Residency Program comprises courses and clinical rotations that are offered in each academic year.
+3. The course syllabus for Clinical Rotations includes the number of credit hours, prerequisites (if any), theoretical and practical contents, methods of assessment, coursebooks, list of reference materials and requirements for laboratory/ practical/ clinical practice, and similar exercises.
+
+### **Article 11. Course**
+
+1. Definition
+
+A course is a relatively complete amount of knowledge or skill that facilitates residents’ accumulation of knowledge or skills during their learning process. Each course is assigned a fixed number of credits based on contents of its instruction. The number of credits earned by the resident reflects the effort expended to acquire knowledge or skills.
+
+1. Course Code
+
+Each course shall have a title and a code. The course code shall consist of alphanumeric with the number indicating the education level of the course as specified by the University course numbering policy.
+
+1. Types of courses
+
+a) Required Course: Contains the main learning outcomes of a section of the curriculum which residents are required to pass to be eligible for promotion and graduation.
+
+b) Elective Course or Subspecialty Course: Also known as Elective Rotation or Subspecialty Rotation. Contains the necessary learning outcomes that residents are allowed to select for themselves (conditionally or freely) according to the guidelines of the MOH or accreditation requirements to diversify their specialization or choose at their discretion to accumulate a specified number of courses needed to complete their curriculum.
+
+### **Article 12. Clinical Rotations**
+
+Clinical Rotations vary in length and involve a combination of direct patient-care activities and educational teaching and learning opportunities. The primary responsibility of a resident during a clinical rotation is to provide patient care under supervision of a clinical faculty member..
+
+### **Article 13. Credit**
+
+1. A credit is a unit that is used to determine the amount of academic work of a resident.
+2. One credit is equivalent to 15 contact hours for lectures; 45 – 90 contact hours for fieldwork (in industry, communities, or hospitals); 45 – 60 contact hours for essays, coursework, thesis or internship. For VinUni residency programs, 1 credit in rotation is equivalent to 60 contact hours in hospitals.
+3. For a theoretical course, residents are advised to spend at least 30 self-study hours to acquire the required knowledge to achieve a credit.
+
+1. Non-credit bearing courses: some courses like experiential learning courses and service-learning courses are non-credit bearing, which refers to learning activities which residents are encouraged to do as part of their curriculum, but which do not carry any credit.
+
+## **Chapter IV:****Training Management**;)
+
+## **Section 1. Organizational structure**;)
+
+### **Article 14. Sponsoring Institution**
+
+VinUni is the Sponsoring Institution and delegates the College of Health Sciences (CHS) to develop plans and models for the management of the residency program (including residency admission regulations and support of managerial titles, lecturers, coordinators, and support staff; enrolment, management, and support for residents in the process of participating in the study of VinUni; implementing the rotation…) to ensure compliance with the provisions of the state’s policies and laws, internal regulations of VinUni, and the effectiveness to submit to the Provost for approval.
+
+The CHS will assume the prime responsibility for managing residency programs according to the plans approved by the Provost.
+
+## **Section 2. Graduate Medical Education Committee**;)
+
+### **Article 15. Position of Graduate Medical Education Committee**
+
+Graduate Medical Education Committee (GMEC) advises the Dean or the Dean designee of the CHS in the management of residency training programs.
+
+### **Article 16. GMEC Members**
+
+GMEC consists of the following members:
+
+a) The Dean or the Dean designee is authorized to hold the role of Chairman of the Council.
+
+b) Designated Institutional Officials (DIO) as Permanent member.
+
+b) 01 Director or Co-director of each residency program.
+
+c) A minimum of two peer-selected residents from among the residency programs. In December every year, the CHS organizes a meeting between the residents to select representatives to participate in GMEC.
+
+d) A quality improvement or patient safety officer or designee.
+
+### **Article 17. Responsibilities**
+
+1. The GMEC shall assume the prime responsibility for formulating and promulgating policies, regulations, and procedures for managing resident training of VinUniversity.
+2. The GMEC establishes mechanisms for information and coordination between GMEC and program directors on the following contents:
+
+a) Collect feedback from learners on financial and other supports and report to leaders of VinUniversity.
+
+b) Monitor and implement training activities at clinical sites, such as clinical and education work hours, grievance and due process, fellow vacation and leave time, promotion, remediation, non-promotion, and dismissal; health insurance, resident services, including access to confidential counseling…
+
+1. The GMEC supervises relevant units’ teaching, guiding, and supporting activities in organizing the residency programs according to the published contents and progress of the residency programs such as: competencies, residents’ promotion, patient safety and quality care…
+2. The GMEC establishes a mechanism for communication and coordination with representatives of practice establishments to effectively implement residency programs through annual activity reports (including contents such as: the implementation of cooperation agreements, learning results of residents, patient safety and quality of care education, status of programs and any citations regarding patient care issues…).
+3. The GMEC also has the responsibility of maintaining documentation relevant to external accreditation bodies such as: ACGME-I, ASEAN University Network – Quality Assurance (AUNQA)…These documents may include: institutional performance indicators, the surveys of residents and core faculty members and stakeholders, annual reports on the performance of the residency…
+4. The GMEC demonstrates effective oversight of underperforming program(s) through a Special Review process: establishes criteria for identifying adequate performance; results in a report that describes the quality improvement goals, corrective actions, and process for GMEC monitoring of outcomes.
+5. The GMEC supervises the admissions process, training, and evaluation of residents.
+6. The GMEC works closely with the DIO to manage institutional accreditation.
+7. The GMEC assumes the primary responsibility for developing and maintaining residency program performance files, monitoring the strengths and weaknesses of each training program, analysing program size and effectiveness, assessing program director performance, monitoring and approving the curriculum, ensuring that the GMEC reviews and approves all residency program leadership changes, and assisting residency programs successfully achieve initial and ongoing accreditation.
+8. The GMEC supervises activities to support residents with their successful completion of their training program (academic and financial) for training sites and residents both inside and outside VinUni.
+9. The GMEC discusses and promulgates resolutions on the change of directors of residency programs.
+
+## **Section 3. Designated Institutional Officials**;)
+
+### **Article 18. Requirement**
+
+DIO is an affiliate faculty at the main practice hospital or a core faculty of VinUni.
+
+### **Article 19. Responsibilities**
+
+1. The DIO serves as the leader and the Chair of the GMEC, in this individual’s absence, the Vice Dean of Clinical Education, College of Health Sciences will perform the duties of the DIO.
+2. The DIO oversees and supervises all administrative aspects of the residency training programs through the Vice Dean of Clinical Education, College of Health Sciences as well as the individual residency program directors.
+3. The DIO Coordinates with GMEC in formulating an annual report on the activities of the residents and presenting it to the leaders of VinUniversity, representatives of the practice sites of the residents. The contents of the annual report include the following:
+
+a) GMEC’s performance results during the past year with attention to, at a minimum, resident supervision, responsibilities, evaluation, compliance with clinical and education work hour requirements, and participation in patient safety and quality of care education.
+
+b) DIO’s performance results.
+
+c) Results of organizing the training of residents.
+
+d) Learning and practice results of residents.
+
+1. The DIO works closely with the GMEC to manage institutional accreditation.
+
+### **Article 20. Benefits**
+
+The CHS issues the policies to support the DIO to carry out educational and administrative responsibilities.
+
+## **Section 4. Program Director**;)
+
+### **Article 21. Requirements**
+
+The Program Director (PD) must:
+
+1. Have a medical practice certificate.
+2. Have successfully completed an approved residency and where applicable fellowship training program in the relevant medical specialty
+3. Having at least 3 years of experience documented experience as a clinician, administrator, and educator in the relevant medical specialty.
+4. Ability to organize and maintain a learning and practice environment conducive to successful resident education and training.
+
+### **Article 22. Responsibilities**
+
+The PD will manage and maintain an effective teaching environment to help residents successfully achieve the competencies of the programs:
+
+a) Oversee and ensure the quality of didactic and clinical education in all sites that participate in the program.
+
+b) Monitor clinical and working environment at all participating sites.
+
+c) Provide a learning and working environment in which residents could raise concerns and provide feedback in a confidential manner as appropriate without fear of intimidation or retaliation.
+
+d) Dedicate sufficient percentage time of his/her professional effort to the administrative and educational activities of the program.
+
+e) Approve a rotation director at each participating site who is their supervisor and is accountable for Resident education and faculty participation/performance.
+
+f) Propose a list of lecturers (core faculty, affiliate faculty) participating in teaching residency programs and submit them to leaders of the CHS for approval.
+
+g) Evaluation of the participation of lecturers. Propose to resume or suspend teaching activities of teachers based on the results of the evaluation submitted to leaders of the CHS for approval.
+
+h) Monitor resident supervision at all participating sites, such as: learning environment, working hours,
+
+i) Monitor Resident Case Logs at least semi-annually and counsel Residents or revise clinical experiences as needed.
+
+g) Prepare and submit all information required and requested by the accreditation bodies to carry out the accreditation activities of the residency programs.
+
+h) Meet with and review with each resident the documented semi-annual evaluation of performance, including progress on the specialty-specific Milestones.
+
+i) Provide verification of residency education for all residents, including those who leave the program prior to completion
+
+j) Inform residents and lecturers of the general and specific policies of VinUni for residents.
+
+k) Preside over the development of clinical study and practice plans of practitioners in accordance with the regulations of VinUni and practice facilities. Adjust the study plan in case of need to ensure that it is suitable for the learner’s abilities and other relevant conditions.
+
+l) Discuss with relevant parties the development of contingency plans to optimize the number of resident and faculty practitioners participating in clinical activities at medical practice facilities (or in other emergency situations).
+
+m) Comply with the regulations of VinUni in the activities of enrolment, teaching, evaluation, academic support, reward, and discipline for resident residents.
+
+n) Notify, guide, and supervise the compliance with the regulations of VinUni and the student’s practice base during the study at the school and practice at the practice facility such as: working and studying hours; access to the medical examination and treatment data system at the internship facility; access to health services, psychological support; provisions in a state of emergency; regulations dealing with substance abuse and other forms of harassment in the workplace; policies on where to live and work during learning.
+
+o) Notify residents regarding updated policies of VinUni, including policies about reducing number of trainees or residency programs discontinuation. In case of stopping the organization of the residency programs, the program director should notify the plan to complete the remaining contents of the residency programs or other training sector transfer support if any.
+
+p) Establish and manage data on the practice facilities/locations of the residency programs and report to management units and inspection organizations upon request.
+
+### **Article 24. Appointment**
+
+1. The Provost of VinUni will appoint Program Directors following the general regulations of VinUni, after the resolution adopted by GMEC and direct notification to relevant units (such as practice hospitals and accreditation bodies)
+2. The term of office of the Programs Directors shall be aligned HR policies. At the end of the term, GMEC evaluates the operations performance and adopts a resolution proposing to continue or stop the appointment of the PD.
+
+### **Article 25. Benefits**
+
+The CHS issues the policies to support the program directors to carry out educational and administrative responsibilities.
+
+## **Section 5: Associate Program Director**;)
+
+### **Article 26. Requirements**
+
+Associate Program Director (APD) must:
+
+### **Article 27. Responsibilities**
+
+1. Assist the Director of the residency programs in the administrative work and supervision of the clinical activities of the residency program.
+2. Dedicate sufficient percentage time of his/her professional effort to the administrative and educational activities of the program.
+3. Report directly on work results to the Program Director.
+4. Participate in continuous and short-term training activities related to professional fields.
+5. To perform other duties assigned by the Program Director.
+
+### **Article 28. Appointment**
+
+1. Provost or provost designee of VinUni will appoint Associate Program Directors according to the general regulations of VinUni, after the resolution adopted by GMEC.
+2. The term of office of the Associate Program Directors shall be aligned HR policies. At the end of the term, GMEC evaluates the operations performance and adopts a resolution proposing to continue or stop the appointment of the APD.
+
+## **Section 6. Coordinators** ;)
+
+### **Article 29. Requirement**
+
+Program coordinators are experienced with medical education and training, understand, and abide by accreditations guidelines, maintain appropriate resident trainee documentation, and complete all administrative responsibilities in a timely and accurate manner.
+
+### **Article 30. Responsibilities**
+
+1. Assist Program Directors with administrative and logistical tasks of residency programs.
+2. Learn and develop personal capacity.
+3. Perform other tasks assigned by the Dean of CHS.
+
+### **Article 31. Benefits**
+
+The CHS issues the policies to support the coordinators to carry out the administrative responsibilities.
+
+## **Section 7. Faculty**;)
+
+### **Article 32. Requirements**
+
+Refer to VinUni clinical faculty track.
+
+### **Article 33. Appointment Process**
+
+Teaching appointments are carried out in accordance with the Faculty Handbook of VinUni.
+
+### **Article 34. Responsibilities**
+
+Faculty members:
+
+1. Participate in training plans and programs development, including compiling teaching materials and other education adjuncts.
+2. Guide, monitor and assist residents to successfully achieve their academic goals
+3. Perform the tasks specified in the Faculty Handbook of VinUni.
+4. Be role models of professionalism.
+
+### **Article 35. Clinical faculty**
+
+1. Practicing instructors are physicians, and:
+
+a) Have a degree, professional qualification, and professional experience of at least 12 consecutive months up to the time of practical teaching in accordance with the teaching level, discipline/major; the academic level of the practical training instructor shall not be lower than that of the learner; and
+
+b) Have the practicing certificate and the scope of their professional competence in accordance with the programs and subjects of practical training in cases provided by the law.
+
+b) Have worked in medical examination or treatment for at least 36 months.
+
+c) Instruct no more than 05 learners at postgraduate-level at the same time.
+
+d) Be trained the clinical teaching-learning method according to the regulations of the Minister of Health, unless the practical training instructor has obtained the certificate of completion of teaching-learning method training program which includes clinical teaching-learning method.
+
+1. Are clinically active in facilities with VinUni residents.
+2. Have signed a teaching contract with VinUni that outlines and delineates all faculty expectations.
+
+### **Article 36. Core Faculty**
+
+1. Core faculty are selected by GMEC based on their professional qualifications and ability to contribute to the training process of the residency programs.
+2. Provide advice and support to the director of the residents in professional matters as requested.
+3. Assist with the development and implementation of an evaluation/evaluation system.
+4. Support and supervise residents.
+5. Devote sufficient percentage time to Resident education and program administration.
+
+### **Article 37. Faculty Evaluation**
+
+Refer to The Clinical Faculty Assessment Program
+
+### **Article 38. Benefits**
+
+1. Participate in residency conferences and seminars.
+2. Assist and support resident scholarly activities including the publication of scientific articles and conducting clinical research, writing case reports and clinical manuscripts, non-peer-reviewed writing activities, committee activities, journal clubs, and quality improvement activities
+3. Complete required faculty development programs.
+4. Demonstrate successful scholarly activity in any of the following: basic science research, translational science activities, public/population health, quality improvement projects completion, abstracts and poster presentations, podium presentations, or peer-reviewed or non-peer-reviewed publications.
+
+## **Section 8:  Practice site**;)
+
+### **Article 39. Requirements**
+
+General requirements for practice facilities:
+
+1. Having announced that medical examination and treatment establishments meet the requirements of practice establishments in health sector training.
+
+a) Have the operating scope suitable the practical training program.
+
+b) Have sufficient equipment and facilities satisfying requirements of the practical training program.
+
+c) Have practical training instructors who meet the requirements specified in Article 4.21 hereof.
+
+1. There are classrooms, briefing rooms, and duty rooms for practical learners and practical instructors.
+2. The total time involved in the practical teaching of all practical instructors in the practice establishment is at least 20% and a maximum of 80% of the total duration of the practical program.
+3. Received a certificate of hospital quality accreditation (national or international, for example JCI or an equivalent process).
+
+### **Article 40. Practical Training Contract**
+
+1. A practical training contract includes a principal contract and a detailed contract, signed under an agreement between VinUni and a practicing hospital that meets the requirements in practical training specified in in Article 4.25 hereof.
+2. VinUni and practice sites shall, based on the program and plan of practical training, agree, and sign a principal contract on practical contract according to each training course, at least 06 months before starting the training course. In case VinUni opens a new training program in the health sector, the principal contract on practical training must be signed before carrying out the procedure for opening the sector.
+3. Detailed contracts on practical training shall be signed according to each academic year, according to each program and specific practical training plan for each training major. VinUni and the practice site sign The detailed contract on practical training after agreeing to promulgate a practical training plan according to regulations.
+4. Principal contract approved by GMEC in its regular meeting. The content of the Principal Contract should include the following:
+
+a) Determine the list of physicians at the practice site participating in teaching the residency program.
+
+b) Prescribing activities of teaching, testing, and evaluating students during practice.
+
+c) Regulations and procedures for managing trainees during practice sessions at practice establishments.
+
+d) Regulations to confirm the trainee’s practice time at the practice facility.
+
+e) Regulations on recognizing teaching volume and scientific research achievements for lecturers’ teaching practice.
+
+f) Regulation of Payment Method.
+
+g) Regulations on appointing part-time officers between VinUniversity and practice facilities.
+
+1. A detailed practice contract is signed between VinUni and the practice facility according to the academic year. The contents of the detailed contract include the following:
+
+a) Detailed teaching plan according to the school year of each training program.
+
+b) List of lecturers participating in the practical instruction.
+
+c) List of students participating in practice.
+
+d) Financial information (costs, payment procedures, etc.)
+
+e) Supporting information on learning conditions such as classrooms, medical documents, medical records, and electronic medical record systems (if any).
+
+f) Supporting information about daily life services such as meals and rooms during the shift.
+
+## **Section 9: Contract with residents**;)
+
+### **Article 41. Contract with residents**
+
+The contract between VinUni and residents includes the following contents:
+
+1. Rights and responsibilities of students in the learning process.
+2. Contract performance period, specifying conditions for extending or terminating the contract ahead of time.
+3. Financial support and commitment to work after graduation (if any).
+4. Conditions for reappointment and promotion to the next level of the educational program.
+5. Grievance procedures and due process
+6. Insurance and career support (if any).
+7. Regulations on leaves of absence, residents’ vacation, and other leaves of absence (with or without pay), to include parental, sick, and other leaves of absence.
+8. Regulations on violations and handling of violations of legal regulations, internal regulations of VinUni, and practice facilities.
+9. Regulations on force majeure events affect the training program’s completion.
+
+## **Section 10: Activities to support learners**;)
+
+### **Article 42. Activities to support learners**
+
+1. Residents are provided with an account and guidance to access and use appropriate resources of VinUniversity during participating in the residency training program.
+2. VinUni discussed with the practice sites on allowing residents to access the medical record system of hospitals during practice at the practice facilities.
+3. VinUni provides support services and develop health care delivery systems to minimize residents’ work that is extraneous to their program educational goals and objectives, and to ensure that residents’ educational experience is not compromised by excessive reliance on residents fulfil non-physician service obligations.
+4. VinUni ensures security and safety for residents when studying at the University; coordinate with practice facilities to ensure security and safety for learners when participating in practice.
+5. VinUni establishes an information mechanism to help residents report incidents, unsafe conditions, violations related to the organization of training programs to ensure fast, convenient, and safe for users. information announcement.
+6. VinUni discusses with practicing institutions to allow residents to learn and contribute ideas on improving the quality of medical examination and treatment of practicing sites.
+7. VinUni establishes a mechanism to receive and respond to information about policies related to e-learning programs, the information system needs to ensure fairness and safety for information providers.
+8. VinUni provides a professional learning environment for residents including: academic integrity, professionalism in medical examination and treatment through the provision of training and practice services; highly qualified teaching staff and a model of professionalism, professional responsibility; professional teaching and learning support services.
+9. VinUni develops a mechanism to ensure that residents have an appropriate learning/practice environment, do not experience overcrowding and have access to basic health care services.
+10. VinUni cooperates with practical sites to build a sufficient population of patients of different ages and genders, with a variety of ethnic, racial, sociocultural, and economic backgrounds, having a range of clinical problems to meet the program’s educational goals and provide a breadth and depth of experience in the specialty.
+
+## **Section 11. Training management organizations**;)
+
+### **Article 43. Training Plan**
+
+1. Every year, based on the training plan of the training programs, the Programs Director presides over the development of the teaching plan for the whole academic year and semester, including the plan of opening classes, the form of teaching and learning (face-to-face, online, blended learning, hands-on, rotation), class schedules, assessment schedules of modules are held each semester for courses.
+2. Directors of training programs organize the announcement of the official school year teaching plan to relevant units and students before the start of the school year.
+3. Directors of training programs update teaching plans into the learning management software and study materials into the online learning system .
+
+### **Article 44. Teaching materials**
+
+1. Teaching materials include:
+
+a) Course outline: a document that provides general information about the course to students, including two main contents: a description of the content and teaching sequence. The course outline is developed based on the curriculum approved by GMEC.
+
+b) Detailed outline: a summary of lesson outlines that provide detailed information about the course to students, which describes the teaching content, teaching methods, reference materials, and valuation method for each content. The detailed syllabus is developed based on the course outline approved by GMEC.
+
+c) Textbook: is the primary, orthodox, minimum, compulsory learning material used for subjects in the higher education program, drafted or selected by GMEC.
+
+d) Monograph: results from in-depth and relatively comprehensive research on a specialized scientific issue.
+
+e) Reference book: refers to a book with content appropriate for the course that faculties and residents use as a resource.
+
+e) Package of teaching and learning materials (Training Package): a set of materials used for teaching in case the university does not organize the courses to compile the curriculum. The teaching and learning materials package includes lectures, presentations, exercises, discussion questions for each lesson (if any), and handouts or materials related to the learning content (compiled by individuals or entities other than VinUni).
+
+1. Developing teaching materials
+
+VinUni organizes the development of teaching materials under a cooperation contract or a different plan. Therefore, the teaching materials must be completed and approved by GMEC one months before official teaching.
+
+1. Notice of teaching materials
+
+Faculties are responsible for notifying students of teaching materials 05 working days before through the electronic learning management system (Canvas).
+
+### **Article 45. Organizing teaching and learning activities**
+
+Based on the teaching plan of the semester, the Director of the training program assigns lecturers to oversee the course in developing teaching materials following Clause 3, Article 4.30 hereof.
+
+1. Regulations for teachers to go to class
+
+Before going to class, lecturers must fully prepare teaching materials and lectures and dress neatly and politely according to the internal regulations of VinUni.
+
+Faculties must attend class on time, according to the timetable and the teaching schedule. If due to unexpected work or personal leave, the lecturer must report to the Program Director to arrange for another lecturer to teach instead or at another suitable time.
+
+1. Teaching and learning online
+
+VinUni applies the online teaching method when it meets the requirements for information technology application conditions in the management and organization of online training issued following Circular No. 12/2016/TT-BGDĐT dated April 22, 2016, by the Ministry of Education and Training.
+
+1. Managing the teaching organization
+
+The coordinators are responsible for providing logistical support, monitoring the activities of the sessions, and reporting to the Program Director any arising problems.
+
+At the end of the semester, the coordinator summarizes the teaching hours of the lecturers and implements the payment procedures for the lecturers according to the VinUni’s regulations.
+
+### **Article 46. Clinical Practice**
+
+1. Clinical practice is a compulsory course in the residency program. Accordingly, VinUni organizes to teach these modules at the practice site.
+2. Program Director develops the practice plan and communicates with the stakeholders.
+3. Contact the practice site
+
+Program Director proposes a list of practice sites and submits it to the Dean of CHS for approval.
+
+1. Assign trainers to guide practice
+
+Based on the practice plan, Program Director coordinates with the hospital’s clinical departments to assign instructors to guide each resident.
+
+1. Student management at the practice site
+
+Instructors are responsible for supporting and supervising students throughout the learning process at the internship according to the plan developed in the approved practice program.
+
+Program Director is responsible for inspecting and supervising students’ learning process at the practice site.
+
+## **Chapter V: Other Regulations for learners**;)
+
+### **Article 47. Absence**
+
+1. Residents may be temporarily absent from the lectures or clinical rotation in these cases:
+2. a) Sick or injured by accident which requires a short treatment period.
+3. b) Presentation of scholarly work (e.g., poster, oral presentation) in seminars and conferences on behalf of VinUniversity. Attendance to seminars and conferences without presentation of scholarly work will not be permitted.
+4. c) Justifiable reasons related to family.
+5. d) Vacation.
+6. e) National holidays.
+7. Residents must inform the program director of their planned absence of at least one week and need to be improved.
+8. In the event of unforeseen circumstances, the resident must immediately notify the program director.
+9. For scheduled absences approved by the Program Director, these will be coordinated with the clinical rotation supervisors and/or clinical training facility to adjust the schedules as needed for all residents and rotation participants. This will be accomplished well in advance of the scheduled absence. And example of a scheduled absence is a resident attending a national or regional medical meeting for education-related purposes, or to present a lecture or abstract at that meeting.
+
+### **Article 48. Reserve the study results**
+
+Residents may temporarily defer their training when:
+
+1. a) They are enlisted in armed forces.
+2. b) They are mobilized to perform other tasks for the country
+3. c) They are sick, pregnant, or injured by accident which requires prolonged period of treatment. Written confirmation by competent medical authorities is required to confirm their condition, according to regulations of Ministry of Health;
+4. d) There are significant personal reasons discussed and approved by the Program Director. This does not include situations involving disciplinary actions. There should be a written plan that documents all of the relevant issues, as well as a training plan for the resident when they return to the program.
+
+### **Article 49. Responsibility**
+
+1. Resident must strictly comply with rules and regulations on residency training and other statutes of VinUniversity.
+2. All resident training will be conducted at an approved training site. This includes hospitals, clinics, and classroom and/or seminar work.
+3. If assigned, residents participate in the instruction of junior residents or university undergraduated medical students.
+4. Resident must fulfill their contractual obligations with VinUniversity or other sponsors (if any).
+
+## **Chapter VI:****Assessment and Evaluation**;)
+
+### **Article 50. Assessment Policy for GME Clinical Rotations and Courses**
+
+1. Each residency program will have formative and summative assessment tools.
+2. Summative assessment will be used to determine an individual residents progress towards independent practice using a Milestones framework.
+3. Summative assessment will also be used to help generate grades/GPA for residents to comply with Vietnam MOH regulations and oversight.
+
+### **Article** **51. Formative Evaluation**
+
+The program must:
+
+1. Provide objective assessments of competence in patient care, medical knowledge, practice-based learning and improvement, interpersonal and communication skills, professionalism, and systems-based practice.
+2. Use multiple evaluators for example faculty members, peers, patients, self, and other professional staff members.
+3. Document progressive resident performance improvement appropriate to educational level in each of the milestones.
+4. Provide each resident with a documented semi-annual evaluation of performance with feedback aimed to assist residents in developing individualized learning plans to capitalize on their strengths and identify areas for growth.
+5. The members of the faculty shall/can/may directly observe, evaluate, and provide feedback on resident performance in a timely manner during each rotation or similar educational assignment and document this evaluation at completion of the assignment.
+
+### **Article** **52. Summative Evaluation**
+
+1. The program director shall provide a summative evaluation for each resident upon completion of the program, which shall become part of the resident’s permanent record maintained by the institution and must be accessible for review by the resident in accordance with VinUni’s policies.
+2. The final period of education shall
+3. Document the resident’s performance during the final period of education.
+4. Verify the resident has demonstrated sufficient competence to enter practice without direct supervision.
+
+### **Article 53. Grading policy**
+
+This will need to be aligned with VinUni Policies, Grading Scale, and Vietnam MOH Policies. GME will follow the University Grading System like undergraduate programs (with letter grades and 4-point scale). Passing grades range from A to D; F is a failure.
+
+- **Letter Grade**. **4-point scale**. **GME**.
+- **From**. **To**.
+- A. 4.0. ***93%***. ***100%***.
+- A-. 3.7. ***90%***. ***<93%***.
+- B+. 3.3. ***87%***. ***<90%***.
+- B. 3.0. ***83%***. ***<87%***.
+- B-. 2.7. ***80%***. ***<83%***.
+- C+. 2.3. ***77%***. ***<80%***.
+- C. 2.0. ***73%***. ***<77%***.
+- C-. 1.7. ***70%***. ***<73%***.
+- D+. 1.3. ***67%***. ***<70%***.
+- D. 1.0. ***63%***. ***<67%***.
+- D-. 0.7. ***60%***. ***<63%***.
+- F. 0.0. ***0%***. ***<60%***.
+
+### **Article 54. Recording system**
+
+1. For all residency programs, the Program Management software will be used to generate and store comprehensive electronic evaluation forms for residents, teaching faculty, and other ancillary evaluators as needed. This is a component of Portfolio Management for residents which is required for Evaluation, Assessment, and Promotion to the next PGY level of training as well as graduation.
+2. Following the completion of each clinical rotation, a resident will receive an electronic, rotation-specific evaluation form completed by the primary faculty member(s) who provided clinical supervision.
+3. The data generated from these forms will be aggregated and reviewed regularly, and compared to residency specific milestones that map to the program core competencies.
+4. Each resident will evaluate the primary faculty member(s) who provided supervision for the rotation.
+5. The content of these forms will be based on best practices for graduate medical education and best practices for clinical faculty development and continuous improvement.
+
+### **Article 55. Recognition of residents’ academic performance**
+
+The academic performance of residents is evaluated roughly annually increments for each PGY level based on the following criteria:
+
+1. The number of credits of the courses/rotations that residents are assigned to complete at the beginning of each semester (referred to as “attempted credits”).
+2. Cumulative academic load is the total credits attempted with letter grades earned since the beginning of the program.
+3. Grade Point Average (GPA) is a numerical average of grades based on all courses taken within a particular level of study. GPA is calculated by dividing total grade points earned by total attempted credits up to a certain time point.
+
+### **Article 56. Clinical Competency Committee**
+
+Please refer to VinUni clinical competency committee policy.
+
+### **Article 57. Thesis**
+
+Please refer to Provisional Regulations on the Thesis of the Residency Programs
+
+### **Article** **58****. Graduation**
+
+1. Graduation exam requirements
+
+Residents shall be eligible to to take graduation exams in terminal year of training.
+
+1. Requirement for Graduation
+
+Both theoretical and empirical knowledge shall be tested. The score of each shall be calculated separately. All graduation exam scores must be at least 7 (based on the grade scale of 10).
+
+1. Graduation Exam Committee:
+
+a) The Committee shall be composed of the CHS Dean or the Dean designee, the DIO and the program directors and established under the Provost’s
+
+b) The Chair of Committee shall be authorized to implement the Graduation Exam.
+
+### **Article 59. Graduation recognition and degree awarding**
+
+1. Residents must satisfy the following requirements for graduation:
+
+a) Having completed all required courses and successfully defended the thesis and graduation exam.
+
+b) Having a satisfactory foreign language proficiency, as evidenced by one of the foreign language certificates at a level equivalent to Level 4 according to the 6-level Foreign Language Competency Framework for Vietnam or other equivalent certificates announced by the Ministry of Education and Training, or a university degree or higher in a foreign language, or a university degree or higher delivered in a foreign language, prior to graduation.
+
+1. The Planning & Academic Administration organizes the resident’s review and recognition within 02 weeks of the student successfully defending the thesis or graduation exam.
+
+b) The Committee shall consider and make a list of eligible residents based on the graduation requirements and propose to the Provost to recognize the graduation.
+
+c) The Provost shall issue the Decision on Recognition of Graduation, granting residency’s degrees and diplomas to students at the request of the graduation review committee and in accordance with current diploma management regulations.
+
+1. The Planning & Academic Administration shall grant residency’s degrees to residents within one month of the issuance of the decision on graduation recognition, as well as provide a system for looking up diplomas on the VinUni web portal for post-audit work and verifying graduation diplomas.
+2. The content of the diploma and diploma appendix must comply with Ministry of Health regulations, with the diploma appendix clearly stating whether the program is research-oriented or coursework-oriented.
+3. Students who are unable to graduate within the study period specified in this Regulation will be given a certificate indicating the results of the courses they have completed in the academic program.
+4. The Planning & Academic Administration is in charge of developing the graduation review and recognition process, as well as the issuance of certificates of recognition of accumulated credits for students who have not completed the graduation requirements.
+
+## **Chapter VII: Quality Assurance**;)
+
+### **Article 60. Quality Assurance**
+
+Please refer to Quality Assurance at VinUni policy
+
+### **Article** **61****.** **Choosing** **Accreditation Standards**
+
+Please refer to Article 6,  Quality Assurance at VinUni policy
+
+### **Article 62****. Course Evaluation**
+
+Please refer to VinUni Course Evaluation Policy
+
+### **Article 63. Program Evaluation**
+
+The program shall document formal, systematic evaluation of the curriculum at least once per year that is based on the program’s stated mission and aims and that monitors and tracks each of the areas which complies with ACGME-I requirements.
+
+## **Chapter VIII: Scholarship – Reward – Discipline**;)
+
+### **Article 64. Scholarship**
+
+1. The residency program of VinUniversiy must advance residents’ knowledge of the basic principles of research, including proper utilization of scientific methods and evidence-based medicine techniques, correctly formulating a hypothesis, appropriate study design, proper data collection techniques, informed consent, proper data analysis, formulating tenable conclusions, and scientific writing methodologies.
+2. Residents should participate in academic activities such as: participating in faculties’ studies, participating in academic activities of VinUniversity such as seminars, workshops, public talk.
+3. As representatives of VinUniversity, residents participate in conferences and courses at home or abroad based on their expertise.
+
+### **Article 65. Reward Awards and Recognition**
+
+Standardized awards and recognition criteria are written and approved by GMEC and are used for the nomination of potential resident awardees.
+
+The Dean of the College of Health Sciences determines the appropriate recognition for residents with outstanding performance, such as:
+
+1. Awards or recognition for outstanding performance or achievement.
+2. Opportunities to attend conferences or workshops.
+3. Financial support for research or academic pursuits.
+4. Educational resources and tools.
+
+## **Chapter IX: Complaints**;)
+
+### **Article 66. Complaints**
+
+1. Residents have the opportunity to raise concerns, provide feedback, and resolve issues without fear of intimidation or retaliation in a confidential manner.
+2. Residents can raise concerns, provide feedback, and resolve issues with the program director immediately or at the meeting every month or semester.
+3. The program director receives feedback and communicates with stakeholders to find solutions and ensure confidentiality.
+4. The program director reports the issues to the GMEC in the regular meeting.
+5. If residents have concerns, or feedback about the program director, they should inform the DIO to resolve issues.
+
+## **Chapter X: Reporting**;)
+
+### **Article** **67.** **Reporting and archive**
+
+1. Prior to December 31 of each year, The Planning & Academic Administration is responsible for preparing a comprehensive report on the residency degree’s academic database at the university for the Ministry of Health.
+2. College of Health Sciences and related departments are responsible for archiving and safely preserving documents related to the residency’s academic training process in accordance with their implementation responsibilities outlined in this Regulation, as well as relevant University and Ministry of Health regulations.
+3. The matriculation decision, the original academic transcript, the graduation recognition decision, and the original certificate of diploma issuance are permanent archival documents.
+4. The thesis was deemed satisfactory or better by the evaluation committee, and the committee’s conclusions and reviewers’ comments are digitized, archived, and preserved in accordance with requirements.
+5. Other records pertaining to enrollment and academic operations must be kept and maintained for at least five years (05) after graduation.
+6. The destruction of documents whose archiving time has expired shall comply with the university’s current regulations.
+
+**Chapter XI: Implementation**
+
+### **Article 68****.** **Implementation**
+
+1. This Regulation becomes effective on the date of signature and applies to enrollment intakes beginning on the date of its entry into force.
+2. Academic regulations can be revised to adjust the latest regulations of the Ministry of Health.
+3. Faculties, Colleges, The Planning & Academic Administration, and other relevant Units and individuals are responsible for the implementation of these Rules and Regulations.
+4. During the implementation process, if any problems arise, the leaders of the units shall report to the Provost through The Planning & Academic Administration to amend and supplement the Regulation. The Provost decides to adjust, supplement, amend.
+
+## **Supporting Documents**;)
+
+### VUNI.47\_1\_Program Evaluation Committee
+
+### VUNI.47\_2\_Clinical Competency Committee
+
+### VUNI.47\_3\_SOW Graduate Medical Education Committee
+
+### VUNI.47\_4\_House staff Council
+
+### VUNI.47\_5\_Special Review Protocol
+
+### VUNI.47\_6\_Resident Moonlighting
+
+### VUNI.47\_7\_ Policy on Probation and Dismissal
+
+### VUNI.47\_8\_ Policy on GME Duty hour
+
+### VUNI.47\_9\_Policy on External Rotations
+
+### VUNI.47\_10\_Policy on Conference and exchange funding
+
+### VUNI.47\_11\_ Policy on resident well being
+
+### VUNI.47\_12\_Supervision of GME program
+
+5/2025/QĐ-VUNI
+
+Regulation
+
+Graduate Medical Education Committee
+
+Oct 19, 2023
+
+You can download this document here: Academic Regulations for Graduate Medical Education (GME)
+
+## Academic Catalogs
+
+## **I. Academic Degree Programs**
+
+**24** degree programs offered from bachelor, master, and PhD level.
+
+## II. Program Specifications;)
+
+Please access this link for more details.
+
+## III. Major, Concentration, and Minor Fields;)
+
+***A Major**(Vietnamese: Ngành chính)****r*epresents a degree-seeking student’s primary field of study (academic discipline). A major is a structured plan of study requiring a minimum of 30 credits.  The major appears on the official transcript.
+
+***A Concentration (Vietnamese: Chuyên ngành)*** is a structured plan of study within a major. The number of credits for a concentration varies (typically from 12-15 credits) but is included within the total credits for the major.  Concentrations allow students to develop an individualized degree program that transcends the scope of a single academic discipline or major program. For students who complete all requirements, the concentration will be acknowledged on the official transcript.
+
+***A Minor (Vietnamese: Ngành phụ)***represents an optional, secondary field of study for a degree-seeking student; no student may declare a major and a minor in the same discipline.  A minor is a structured plan of study requiring a minimum of 15 credits. A minor is a good way to complement your major, have your interests in another subject area recognized on your official transcript, and expand your employment opportunities.  
+Please access this link for detail minor fields: Minor fields information – VinUni Policy
+
+**1. College of Arts and Sciences**
+
+- **Major**. **Minor**.
+- **Bachelor of Arts in Multimedia Communication**  1. Digital Communication Focus 2. Public Relations Focus   **Bachelor of Arts in Economics**   1. Innovation Economics Focus 2. Enterprise, Market and Institutional Economics Focus   **Bachelor of Arts in Psychology**   1. Education Psychology Focus 2. Business – Organization Psychology Focus. 1. Psychology *(offered to all students)* 2. Psychology for Clinicians *(offered to CHS (MD/BN) students)* 3. Vietnam Studies *(offered to all students)* 4. Economics *(offered to all students)* 5. Multimedia Communication *(offered to all students)*.
+
+**2. College of Business and Management**
+
+- **Major**. **Minor**.
+- **Bachelor of Business Administration** **6 concentrations:**   1. Hospitality Leadership 2. Business Analytics 3. Marketing 4. Entrepreneurship 5. Finance 6. Operations and Supply Chain Management. Minor (offered to non-BBA students, for BBA students of cohort 22-23, please see details HERE)  1. Hospitality Leadership 2. Business Analytics 3. Marketing 4. Entrepreneurship 5. Finance 6. Operations and Supply Chain Management.
+
+**3. College of Engineering & Computer Science**
+
+- **Concentration**. **Minor**.
+- **Bachelor of Science in Computer Science (BSCS)**  1. Artificial Intelligence 2. Data Analytics 3. Cybersecurity   **Bachelor of Science in Electrical Engineering (BSEE)**   1. Communications and Signal Processing 2. Control and Automation 3. Power and Clean Energy   **Bachelor of Science in Mechanical Engineering (BSME)**   1. Automotive Engineering 2. Systems and Manufacturing 3. Energy and Sustainability 4. Mechatronics. 1. Artificial Intelligence *(offered to CBM students)* 2. Computer Science for health care professionals *(offered to nursing students)* 3. Artificial Intelligence *(offered to electric and mechanical engineering students)* 4. Robotics *(offered to engineering and computer science students)* 5. Product Design *(offered to engineering and computer science students)*.
+
+**4. College of Health Sciences**
+
+**Minor:**
+
+1. Healthcare Management  (*offered to to CBM and CECS students)*
+2. Healthcare Information for Engineers *(offered to CECS students)*
+3. Healthcare for Psychologists (offered to BAP students)
+
+## IV. Exchange Programs;)
+
+- **Outbound Exchange Program**. **Inbound Exchange Program**.
+- * **40** Academic Partners * **440+** VinUni students going exchange outbound (Including both semester exchange and short-term exchange) * Exchange Destinations for VinUni students: Cornell University, University of Toronto, Queen’s University, University of British Columbia, University of Western Australia, University of Technology Sydney, Nanyang Technological University Singapore, Singapore Management University, University of Birmingham, University of Exeter, Seoul National University, Yonsei University, Sungkyunkwan University, Pohang University of Science and Technology, Ulsan National Institute of Science and Technology, The Hong Kong University of Science and Technology, Nyenrode Business University, Technion – Israel Institute of Technology…. * **40+** Academic Partners * **1500+** International students coming to VinUni for exchange (Including both semester exchange and short-term exchange) * Inbound students come from Cornell University, New York University, University of California, Los Angeles, Utah State University, University of Cambridge, University College London, University of British Columbia, Monash University, University of Queensland, University of Technology Sydney, National University of Singapore, Nanyang Technological University Singapore, Singapore Management University, Singapore University of Technology and Design, The Hong Kong University of Science and Technology, Sungkyunkwan University, Nyenrode Business University….
+
+Visit the website for further information: <https://vinuni.edu.vn/global_exchange/home/>
+
+## V. Integrated Programs;)
+
+**Overview:** Students who are accepted into this program will have the opportunity to earn two bachelor’s degrees or a bachelor’s and a master’s degree – one from VinUni and the second degree from a partner university abroad.
+
+* 3+2 Model: 3 years undergraduate studies at VinUni + 2 subsequent years overseas to obtain a Bachelor’s degree at VinUni & Master’s degree at partner university
+* 3+1+1 Model: 3 years undergraduate studies at VinUni + 1 subsequent year overseas to obtain a Bachelor’s degree at VinUni + 1 subsequent year overseas to obtain Master’s degree at a partner university
+* 3.5+1.5 Model: 3.5 years undergraduate studies at VinUni + 1.5 subsequent years overseas to obtain a Bachelor’s degree at VinUni & Master’s degree at a partner university
+* 3.5+2 Model: 3.5 years undergraduate studies at VinUni + 2 subsequent years overseas to obtain a Bachelor’s degree at VinUni & Master’s degree at a partner university
+* 4+1 Model: 4 years undergraduate studies at VinUni + 1 subsequent year overseas to obtain a Bachelor’s degree at VinUni & Master’s degree at a partner university
+
+## VI. Academic Catalog Archives;)
+
+Requests for information of Academic Catalogs can be directed to AQA/CEQM via email qualityassurance@vinuni.edu.vn.
+
+The following catalogs contain descriptions of the curriculum framework, degree requirements, and related matters intended to be in effect at the VinUniversity for the indicated catalog year. Please follow the provided link to access the file.
+
+- **VinCore**. Bachelor of Arts in Multimedia Communication. Bachelor of Arts in Economics. Bachelor of Arts in Psychology.
+- *Curriculum Framework Cohort 2024* *Curriculum Framework Cohort 2025*. Curriculum Framework Cohort 2023 *Curriculum Framework Cohort 2024*  Curriculum Framework Cohort 2025. Curriculum Framework Cohort 2023 *Curriculum Framework Cohort 2024*  *Curriculum Framework Cohort 2025*. *Curriculum Framework Cohort 2023* *Curriculum Framework Cohort 2024*  *Curriculum Framework Cohort 2025*.
+
+**2.1. Undergraduate Programs**
+
+- Bachelor of Business Administration. Bachelor of Science in Hospitality Management. Bachelor of Finance and Banking.
+- *Curriculum Framework Cohort 2020* *Curriculum Framework Cohort 2021*  *Curriculum Framework Cohort 2022*  *Curriculum Framework Cohort 2023*  *Curriculum Framework Cohort 2024*  *Curriculum Framework Cohort 2025*. *Curriculum Framework Cohort 2020* *Curriculum Framework Cohort 2021*  *Curriculum Framework Cohort 2022*. *Curriculum Framework\_Cohort 2026*.
+
+**2.2. Postgraduate Programs**
+
+- **Master of Business Administration (MBA)**.
+- *Master of Business Administration (MBA) Cohort 2025*.
+
+**3.1. Undergraduate Programs**
+
+- **Bachelor of Science in Computer Science**. **Bachelor of Science in Electrical Engineering**. **Bachelor of Science in Mechanical Engineering**. **Bachelor of Science in Data Science**.
+- *Curriculum Framework Cohort 2020* *Curriculum Framework Cohort 2021*  *Curriculum Framework Cohort 2022*  *Curriculum Framework Cohort 2023*  *Curriculum Framework C**o**hort 2024*  *Curriculum Framework Cohort 2025*. *Curriculum Framework Cohort 2020* *Curriculum Framework Cohort 2021*  *Curriculum Framework Cohort 2022*  *Curriculum Framework Cohort 2023*  *Curriculum Framework C**o**hort 2024*  *Curriculum Framework Cohort 2025*. *Curriculum Framework Cohort 2020* *Curriculum Framework Cohort 2021*  *Curriculum Framework Cohort 2022*  *Curriculum Framework Cohort 2023*  *Curriculum Framework C**o**hort 2024*  *Curriculum Framework Cohort 2025*. *Curriculum Framework Cohort 2024* *Curriculum Framework Cohort 2025*.
+
+**3.2. Postgraduates Programs**
+
+- **Master Degrees**. **Ph.D. Degrees**.
+- Master of Science\_Mechanical Engineering\_Cohort 2025 Master of Science\_Electrical Engineering\_Cohort 2025  Master of Science\_Computer Science\_Cohort 2025. *Ph.D. in Computer Science*.
+
+**4. College of Health Science**
+
+**4.1. Undergraduate Programs**
+
+- **Bachelor of Nursing**. **Medical Doctor**.
+- *Curriculum Framework Cohort 2020*  *Curriculum Framework Cohort 2021*  *Curriculum Framework Cohort 2022*  *Curriculum Framework Cohort 2023*  *Curriculum Framework Cohort 2024*  *Curriculum Framework Cohort 2025*. *Curriculum Framework Cohort 2020*  *Curriculum Framework Cohort 2021*  *Curriculum Framework Cohort 2022*  *Curriculum Framework Cohort 2023*  *Curriculum Framework Cohort 2024*  *Curriculum Framework Cohort 2025*.
+
+**4.2. Postgraduate Programs**
+
+**Graduate Medical Education (GME)**
+
+- **Surgery Program**. **Pediatrics Program**. **Internal Medicine**.
+- *Curriculum Framework AY 20 – 21*  *Curriculum Framework AY 21 – 22*  *Curriculum Framework AY 22 – 23*  *Curriculum Framework AY 23 – 24*  *Curriculum Framework AY 24 – 25*  *Curriculum Framework AY 25 – 26 (5-year track)*  *Curriculum Framework AY 25 – 26 (6-year track)*. *Curriculum Framework AY 20 – 21*  *Curriculum Framework AY 21 – 22*  *Curriculum Framework AY 22 – 23*  *Curriculum Framework AY 23 – 24*  *Curriculum Framework AY 24 – 25*  *Curriculum Framework AY 25 – 26*. *Curriculum Framework AY 20 – 21*  *Curriculum Framework AY 21 – 22*  *Curriculum Framework AY 22 – 23*  *Curriculum Framework AY 23 – 24*  *Curriculum Framework AY 24 – 25*  *Curriculum Framework AY 25 – 26*.
+
+- **Orthopaedic Program**. **Radiology Program**.
+- *Curriculum Framework AY 23 – 24*  *Curriculum Framework AY 24 – 25*  *Curriculum Framework AY 25 – 26*. *Curriculum Framework AY 24 – 25*  *Curriculum Framework AY 25 – 26*.
+
+## VII. Reference;)
+
+**University Academic Catalog Guidelines**
+
+This guideline serves to establish clear guidelines and procedures for the creation, publication, maintenance, and archiving of the annual University Academic Catalog (also known as the Curriculum Framework, or the “Catalog”). This policy ensures that the Catalog remains an accurate and up-to-date resource for students, faculty, staff, and other stakeholders.
+
+Access to the link to see details: University Academic Catalog Guidelines – VinUni Policy
+
+**Information Directory**
+
+VinUni website: <https://vinuni.edu.vn/>
+
+Facebook: <https://www.facebook.com/vinuniversity>
+
+College of Arts and Science: <https://cas.vinuni.edu.vn/>
+
+College of Business and Management: <https://cbm.vinuni.edu.vn/>
+
+College of Engineering & Computer Science: <https://cecs.vinuni.edu.vn/>
+
+College of Health Science: <https://chs.vinuni.edu.vn/>
+
+## VinCore Curriculum Framework
+
+*Issued in conjunction with **Decision No. 342A/2025/QĐ-VUNI**, dated June 20, 2025, by the Provost of VinUniversity.*
+
+## 1. Program Overview
+
+### 1.1. Program Description
+
+- **Name of the program degree**. **VinCore**.
+- **Program duration**. * An integral and compulsory component of a VinUni education * Common to all undergraduate programs * For some components students may fulfill the requirements in different ways by choice of selective courses * All components to be completed prior to graduation.
+- **Total credits/hours**. * Credit-bearing courses: 35 * Non-credit bearing courses: 135 contact hours * National Defense Education (165 contact hours) as the requirement of the government and MOET (Ministry of Education and Training) (applicable to Vietnamese students only)..
+
+**Important notes:** Cohorts 2021 to 2023 will continue under the existing General Education (GenED) curriculum, while the newly developed VinCore curriculum will be effective starting with Cohort 2024.
+
+### 1.2. Program Mission
+
+The VinCore Program is an interdisciplinary and transformative educational experience that combines personal character development, career skills preparation, and civic knowledge to foster a new generation of empathetic, visionary, and globally minded leaders. This approach ensures VinUni graduates are not only well prepared for their careers but also capable of making significant, positive impacts on their communities and the world at large.
+
+### 1.3. Program Learning Outcomes
+
+**The Three Cs – The Pillars of VinCore:**
+
+- **1. Character**. Develop personal core character traits and values that help VinUnians differentiate themselves and achieve success in work and life. This foundation helps them become resilient, empathetic leaders and visionary change-makers..
+- **2. Career**. Develop transferable skills that ensure high employability and readiness for various career paths, including research, science, startups, and corporate roles..
+- **3. Connections**. Develop a diverse base of knowledge to broaden students’ horizons, foster curiosity, encourage active engagement in lifelong learning and promote integration beyond boundaries..
+
+- **Pillar**. **Block**. **Learning Outcome**.
+- 1. Character. 1.1. Enterprise and Innovation. **PLO1:** Lead and innovative within the corporate/professional environment [Competence].
+- 1.2. Leadership Mindset.
+- 1.3. Civic Responsibility. **PLO2:** Demonstrate a strong sense of ethics, civic responsibility, and community service. [Attitude].
+- 1.4. Ethics.
+- 1.5 Community Service Learning.
+
+- **Pillar**. **Block**. **Learning Outcome**.
+- 2. Career. 2.1. Working with the Brain. **PLO3:** Possess critical and creative thinking skills [Skill].
+- 2.2. Working with Technology. **PLO4:** Apply basic computational and IT knowledge into daily like and work [Skill].
+- 2.3. Working with Others. **PLO5:** Communicate and manage teams through multimedia formats using written and spoken language. [Skill].
+- 2.4. Working with the Self. **PLO6:** Realize one’s strengths and areas of improvement and pursue lifelong learning. [Attitude].
+- 2.5. Internship.
+
+- **Pillar**. **Block**. **Learning Outcome**.
+- 3. Connections. 3.1. Integrated Vietnam Studies. **PLO7:** Think critically and reflect on topics related to the arts, culture and humanity [Knowledge] **PLO9:** Display a strong sense of patriotism while maintaining the characteristics of a global citizen [Attitude].
+- 3.2. Sustainability and Global Citizenship. **PLO8:** Explain the importance of sustainability and globalization [Knowledge].
+- 3.3. Creative Arts. **PLO7:** Think critically and reflect on topics related to the arts, culture and humanity [Knowledge].
+- 3.4. Global Experience. **PLO9:** Display a strong sense of patriotism while maintaining the characteristics of a global citizen [Attitude].
+
+## 2. Curriculum structure;)
+
+### 2.1 Curriculum Composition
+
+- **PLO**. **Block**. **Course**. **PLO**. **Credits**. **Obligatory**. **Selective**.
+- 1.1. Enterprise and Innovation (4 credits). ENTR1022 Agile Innovation and Entrepreneurship. PLO1. 2. x.
+- IDEA1010/11/12… Big Ideas (X) *(The IDEA1010/11/12 series, titled ‘Big Ideas (X)’ will have its course code and title defined each semester, allowing the course content to align with the key themes and innovative design concepts)*. PLO1. 2. x.
+- 1.2. Leadership Mindset (2 credits). LEAD1031 Leadership and Teambuilding Bootcamp. PLO2. 2. x.
+- 1.3. Civic Responsibility (2 credits). VCOR1030 National Defense Education. PLO2. 165 hours. x.
+- LAW1010 Introduction to Law. PLO2. 2. x.
+- 1.4. Ethics (2 credits). CAS2010 Applied Ethics. PLO2. 2. x.
+- MANA3021 Business Ethics. PLO2. 2. x.
+- NURS3240 Healthcare Ethics. PLO2. 2. x.
+- TECH1010 Technology Ethics. PLO2. 2. x.
+- 1.5. Community Service Learning. COSL1010 Community Service Learning. PLO2. 45 hours. x.
+- 2.1. Working with the Brain (2 credits). THINK1010 Critical and Creative Thinking. PLO3. 2. x.
+- 2.2.. Working with Technology (4 credits). CECS1040 Introduction to AI Literacy. PLO4. 2. x.
+- CECS1050 Introduction to Data Literacy. PLO4. 2. x.
+- CECS1031 Computational Thinking. PLO4. 2. x.
+- CHS1000 Introduction to Healthcare Informatics. PLO4. 2. x.
+- 2.3. Working with Others (4 credits). ENGL1030 Academic and Professional Writing. PLO5. 2. x.
+- ENGL1040 Interpersonal and Multimedia Communication. PLO5. 2. x.
+- MANA1011 Introduction to Managing Skills. PLO5. 2. x.
+- CHS1020 Introduction to Healthcare Communication. PLO5. 2. x.
+- 2.4. Working with the Self. VCOR1012A/B OASIS (Orientation, Advising, Skills, Identity & Diversity and Spirit of Pay-it-Forward). PLO6. 45 hours. x.
+- VCOR1021/22 Healthy Lifestyle. PLO6. 45 hours. x.
+- 2.5. Internship. Upon the College’s design. PLO6. x.
+- 3.1. Integrated Vietnam Studies (11 credits). HASS1010 Marxism Leninism Philosophy (Philosophy, Science and Society). PLO7 PLO9. 3. x.
+- HASS1020 Marxism-Leninism Political Economy (Global Political Economy). PLO7 PLO9. 2. x.
+- HASS1030 Scientific Socialism (Politics and Social Change). PLO7 PLO9. 2. x.
+- HASS1041/42 Ho Chi Minh Ideology (Vietnam History and Culture II). PLO7 PLO9. 2. x.
+- HASS1050 History of the Communist Party (Vietnam History and Culture I). PLO7 PLO9. 2. x.
+- 3.2. Sustainability and Global Citizenship (2 credits). HASS1070 Cross-Cultural Navigation. PLO8. 2. x.
+- HASS1100 Introduction to International Relations. PLO8. 2. x.
+- SUST1010 Humans and Environmental Intelligence. PLO8. 2. x.
+- SUST1020 Social Science and Sustainability. PLO8. 2. x.
+- UROP (Undergraduate Research Opportunity Program)/Independent Student Project. *(\*)The UROP course code will be assigned based on the respective College, allowing for discipline-specific research experiences that align with the academic and research priorities of each College*. PLO8. 2. x.
+- 3.3. Creative Arts (2 credits). ARTS1030 Arts Appreciation and Application. PLO7. 2. x.
+- PERF1010 Artistic Performance and Application. PLO7. 2. x.
+- CHS1030 Application of the Arts for Therapy and Wellbeing. PLO7. 2. x.
+- 3.4. Global Experience. *Students are encouraged to explore short-term study abroad exchange opportunities, facilitated by the Global Exchange Office, to broaden their global understanding and academic experience through partnerships with international institutions*. PLO9. NA. x.
+- **Total No. of Credits**. **35**.
+
+**Notes**
+
+* Students must take all courses listed as “obligatory”. For “selective” courses, students must choose one from the same block. E.g., for block 1.4 “Ethics” students may choose from CAS2010, MANA3021, NURS3240, or TECH1010.
+* International students are exempt from National Defense Education.
+
+### 2.2. Recommended Study Plan
+
+- **No.**. **Course Code**. **Block**. **Name**. **Semester**.
+- **Year 1**. **Year 2**. **Year 3**. **Year 4**.
+- O. F. Sp. Su. F. Sp. Su. F. Sp. Su. F. Sp. Su.
+- 1.1. Enterprise and Innovation (4 credits). ENTR1022 Agile Innovation and Entrepreneurship. 2. x.
+- IDEA1010/11/12… Big Ideas (X). 2. x.
+- 1.2. Leadership Mindset (2 credits). LEAD1031 Leadership and Teambuilding Bootcamp. 2. x.
+- 1.3. Civic Responsibility (2 credits). VCOR1030 National Defense Education. N/A. x.
+- LAW1010 Introduction to Law. 2. x.
+- 1.4. Ethics (2 credits). CAS2010 Applied Ethics. 2. x.
+- MANA3021 Business Ethics. 2. x.
+- NURS3240 Healthcare Ethics. 2. x.
+- TECH1010 Technology Ethics. 2. x.
+- 1.5. Community Service Learning. COSL1010 Community Service Learning. N/A. x.
+- 2.1. Working with the Brain (2 credits). THINK1010 Critical and Creative Thinking. 2. x.
+- 2.2.. Working with Technology (4 credits). CECS1031 Computational Thinking. 2. x.
+- CECS1050 Introduction to Data Literacy. 2. x.
+- CECS1040 Introduction to AI Literacy. 2. x.
+- CHS1000 Introduction to Healthcare Informatics. 2. x.
+- 2.3. Working with Others (4 credits). ENGL1030 Academic and Professional Writing. 2. x.
+- ENGL1040 Interpersonal and Multimedia Communication. 2. x.
+- MANA1011 Introduction to Managing Skills. 2. x.
+- CHS1020 Introduction to Healthcare Communication. 2. x.
+- 2.4. Working with the Self. VCOR1012A/B OASIS (Orientation, Advising, Skills, Identity & Diversity and Spirit of Pay-it-Forward). N/A. x.
+- VCOR1021/22 Healthy Lifestyle. N/A. x. x.
+- 2.5. Internship. Upon the College’s design. N/A.
+- 3.1. Integrated Vietnam Studies (11 credits). HASS1010 Marxism Leninism Philosophy (Philosophy, Science and Society). 3. x.
+- HASS1020 Marxism-Leninism Political Economy (Global Political Economy). 2. x.
+- HASS1030 Scientific Socialism (Politics and Social Change). 2. x.
+- HASS1041/42 Ho Chi Minh Ideology (Vietnam History and Culture II). 2. x.
+- HASS1050 History of the Communist Party (Vietnam History and Culture I). 2. x.
+- 3.2. Sustainability and Global Citizenship (2 credits). HASS1070 Cross-Cultural Navigation. 2. x.
+- HASS1100 Introduction to International Relations. 2. x.
+- SUST1010 Humans and Environmental Intelligence. 2. x.
+- SUST1020 Social Science and Sustainability. 2. x.
+- UROP (Undergraduate Research Opportunity Program)/Independent Student Project. *(\*)The UROP course code will be assigned based on the respective College, allowing for discipline-specific research experiences that align with the academic and research priorities of each College*. 2. x.
+- 3.3. Creative Arts (2 credits). ARTS1030 Arts Appreciation and Application. 2. x.
+- PERF1010 Artistic Performance and Application. 2. x.
+- CHS1030 Application of the Arts for Therapy and Wellbeing. 2. x.
+- 3.4. Global Experience. *Students are encouraged to explore short-term study abroad exchange opportunities, facilitated by the Global Exchange Office, to broaden their global understanding and academic experience through partnerships with international institutions*. N/A.
+- Total                              **35**. **11**. **10**. **8**. **6**.
+
+### 2.3 Course Learning Outcomes
+
+**ENTR1022 Agile Innovation and Entrepreneurship**
+
+Credit: 2
+
+Prerequisite: None
+
+On successful completion of this course, students will be able to:
+
+1. Explain how an entrepreneurial mindset supports and accelerates innovation and growth in the contexts of businesses, industries, and countries.
+2. Evaluate the multifaceted nature of entrepreneurship in Vietnam and internationally, and how it impacts the economy, society, and environment. Have access to insights on Vingroup’s governance principles (the 6 Hóa).
+3. Recommend strategies to evaluate the entrepreneurial mindset, values, and behaviors, and to further develop the entrepreneurial mindset, both individually and organizationally.
+4. Grow your own entrepreneurial mindset and innovation-related skills, including identifying and evaluating opportunities, taking calculated risks, solving problems creatively, communicating effectively, and influencing stakeholder groups.
+5. Demonstrate the ability to work productively in teams to collaboratively explore opportunities, generate ideas, and find and communicate solutions to a predefined challenge during the course hackathon.
+
+**IDEA1010/11/12/… Series: Big Ideas (X)**
+
+Prerequisite: N/A
+
+1. Describe and explain a “big idea”, which may be a new solution to a problem, a disrupting technology, or an innovative method or way of doings things
+2. Identify the implications of a big idea for everyday life or a professional setting
+3. Develop a strategy for using a big idea to improve an existing approach or create a new application
+4. Evaluate the application of a big idea, including an assessment of its positive impacts, negative impacts, and mitigating strategies for the theme of the year
+
+**LEAD1031 Leadership and Teambuilding Bootcamp**
+
+1. Define foundational concepts of leadership traits, leadership styles, values, and trends, and their applications to real-life situations, especially in a turbulent world.
+2. Describe and evaluate the differences and similarities between management and leadership, and their application in an organizational setting.
+3. Evaluate the multifaceted nature of leadership in Vietnam and internationally, and their impact on work environments, particularly in a VUCA context. Have access to insights on Vingroup’s mission, vision, and core values.
+4. Develop your own leadership mindset by setting a vision, developing self-awareness, understanding others’ perspectives, understanding situational contexts, communicating effectively, and making informed decisions. setting a vision, accepting accountability, understanding self and others’ limits, inspiring and motivating others, and creating the collaborative conditions for success
+5. Apply basic leadership values and skills through action-based learning, building self, interpersonal, and team leadership during the leadership bootcamp.
+
+**VCOR1030 National Defense Education**
+
+Hours: 165
+
+1. Understand and articulate knowledge of the National Defense and Security policies of the Communist Party of Vietnam.
+2. Understand basic concepts of national defense and security work.
+3. Understand and practice the fundamental rules and disciplinary regulations in military organization.
+4. Practice the fundamental techniques and tactics of infantry combat
+
+**LAW1010 Introduction to Law**
+
+1. Explain the history, contemporary nature, and purpose of the Vietnamese legal system, including its key institutions, doctrines, and principles.
+2. Describe and evaluate key differences and similarities between legal system management in Vietnam and internationally.
+3. Understand the mechanisms of legal duty, justification of punishment, and the roles of courts and juries.
+4. Apply fundamental legal rules and principles in a wide range of selected areas of the law, demonstrating critical thinking and ethical considerations.
+5. Develop a mindset of compliance and appreciate the importance of adhering to legal standards in professional and personal context
+
+**CAS2010 Applied Ethics**
+
+1. Identify and explain a range of ethical concerns across different professional and real-world domains of human interaction.
+2. Apply ethical theories and offer rational justification to moral dilemmas.
+3. Understand the moral stakeholders involved and the ethical obligations required for certain professional standards/codes, as well as the rationale behind them.
+4. Apply ethical theories and offer rational justification to moral dilemmas where no professional standards/codes are established
+
+**MANA3021 Business Ethics**
+
+1. Understand and explain the relevance of values applied to business, such as integrity, accountability, transparency, respect for stakeholders, corporate social responsibility (CSR), fairness, and compliance)
+2. Identify business practices that produce unethical behavior or harm to the individual, society, or environment
+3. Apply relevant ethical theories to moral dilemmas in the context of business
+4. Evaluate different responses to ethical practice in business and justify an opinion based on ethical theory
+
+**NURS3240 Healthcare Ethics**
+
+1. Understand and explain the relevance of principles and values applied to healthcare, medical research, and health policy, covering topics such as respect for patients, beneficence and non-maleficence, justice, and honesty and transparency)
+2. Identify medical practices that produce unethical behavior or harm to patients, the profession, society, or the environment
+3. Apply relevant ethical theories to moral dilemmas in the context of medical treatment
+4. Evaluate different responses to ethical practice in medicine and justify an opinion based on ethical theory
+5. Understand the influence of religious ethics in patient treatment and decision-making
+
+**TECH1010 Technology Ethics**
+
+1. Understand and explain the principles and values applied to technology, including privacy and data protection, algorithmic fairness and bias, digital inclusion, accountability and transparency, sustainability, and ethical AI and machine learning)
+2. Identify uses of technology that produce unethical behavior or harm to users, society, or the environment
+3. Apply relevant ethical theories to moral dilemmas involving technology
+4. Evaluate different responses to ethical practice in technologies and justify an opinion based on ethical theory
+
+**COSL1010 Community Service Learning**
+
+Hours: 45
+
+1. Define and understand the essential components of service learning, including benefits, impact, and key attributes.
+2. Critically reflect on social issues and UNESCO’s sustainable development goals (SDGs) with reference to a planned service project
+3. Plan and implement a service project in accordance with local laws and regulations
+4. Reflect on the outcomes of that service project and how it could have been improved
+5. Develop sensitivity and empathy to local community members
+
+**THINK1010 Critical and Creative Thinking**
+
+1. Appreciate the purpose and importance of creative and critical thinking.
+2. Identify, develop, and criticize claims and arguments in accordance with principles of logical reasoning and scientific evidence
+3. Apply creative and critical thinking with supporting tools and techniques for problem-solving.
+4. Embed creative and critical thinking in workplace idea generation.
+5. Build foundations for enhancing individual and team effectiveness.
+
+**CECS1031 Computational Thinking**
+
+1. Identify and analyze problems from life and business in order to determine computational solutions.
+2. Break down problems into logical steps and data requirements.
+3. Use basic data structures and algorithms for problem-solving.
+4. Design simple algorithms and computational models.
+5. Implement solutions using basic programming skills.
+6. Evaluate and optimize computational solutions.
+
+**CECS1050 Introduction to Data Literacy**
+
+1. Read, understand, create, and communicate data as information.
+2. Analyze and visualize data using tools like Excel and Python.
+3. Understand the importance of data in business strategy and apply data-driven insights for decision-making.
+4. Develop skills to improve data collection designs and ensure data quality.
+5. Utilize statistical methods and probability to interpret, present and effectively tell stories about data.
+
+**CECS1040 Introduction to AI Literacy**
+
+1. Understand basic AI principles, including machine learning and neural networks.
+2. Use AI tools like ChatGPT for work and study tasks.
+3. Recognize ethical implications, such as data privacy and algorithmic bias.
+4. Apply AI to improve efficiency and innovation in academic and professional settings.
+5. Design and evaluate user interfaces for better human-AI interaction
+
+**ENGL1030 Academic and Professional Writing**
+
+Prerequisite: NA
+
+On successful completion of this unit, students will be able to:
+
+1. Identify and explain core attitudes, values, and practices of academic culture and how academic writing reflects these.
+2. Reflect critically on the differences between academic and opinion writing and apply this understanding in the composition of academic essays, including referencing, quoting, and paraphrasing.
+3. Evaluate the differences between academic and professional writing in terms of style, purpose, target audience, and techniques.
+4. Develop your clear, concise, and well-structured writing skills, focusing on the most critical documents and situations in academic and professional work such as academic essays, newspaper articles, business reports, proposals, speeches…
+5. Use AI to develop, enhance, and revise writing in both academic and professional contexts.
+
+**ENGL1040 Interpersonal and Multimedia Communication**
+
+1. Identify and explain the fundamental concepts, scope, and diversity of oral and visual communication.
+2. Identify communication expectations based on an understanding of different professional audiences and contexts and apply this knowledge in delivering communication.
+3. Demonstrate responsible, ethical, and respectful attitudes as the field undergoes disruptive changes fueled by rapid technological advancements.
+4. Develop your own oral communication skills in key situations, from speeches to conversation, discussion, giving feedback.
+5. Grow your skills in developing digital content for multimedia, including presentations, pitches, blog posts, viral videos, podcasts, and basic media management.
+
+**MANA1011 Introduction to Managing Skills**
+
+On successful completion of the course, students will be able to:
+
+1. Apply the SMART technique to define specific, measurable, achievable, relevant, and time-bound goals, ensuring clarity and focus on their objectives.
+2. Develop skills to effectively organize tasks and prioritize them based on importance and urgency, facilitating efficient and systematic progress towards achieving objectives.
+3. Understand how to assign tasks based on team members’ individual strengths, skills, and expertise, ensuring optimal use of resources, and enhancing team performance.
+4. Learn to create and manage project schedules, monitor progress, and employ motivational techniques to keep team members engaged and productive, overcoming challenges and maintaining momentum.
+5. Acquire the ability to give professional, accurate, and timely feedback, fostering a positive energy and environment within the team.
+
+**OASIS**
+
+1. Cultivate self-leadership, enhancing self-confidence, self-esteem, self-determination, and self-control.
+2. Self- acquire and apply college readiness skills, life-long learning, effectively adapting to academic, social, and personal challenges of university life
+3. Self- develop essential career skills, preparing for personal and professional success.
+4. Embrace community involvement by actively participating in community service, demonstrating a commitment to positive societal impact and a pay-it-forward spirit.
+5. Regularly reflect on personal growth and practice self-leadership throughout your university life, from the initial enrollment CV to the Individual Development Plan (IDP) and the pre-graduation CV, ensuring ongoing development and readiness for life after graduation.
+
+**VCOR1021/22 Healthy Lifestyle**
+
+1. Understand the important principles of a healthy lifestyle, including balanced nutrition, regular physical activity, and mental well-being.
+2. Understand your own health, develop your own personal health strategies, including techniques for managing stress effectively and maintaining a balanced life.
+3. Engage in self-discipline for nutrition, exercise, and rest, and actively participate in various physical and mental well-being clubs at the university.
+4. Recognize the impact of lifestyle choices on long-term health and well-being, and make informed decisions to enhance your quality of life.
+5. Be motivated to promote well-being within communities through various means such as research, awareness campaigns, and participation in health clubs.
+
+**Internship**
+
+Credit: Depending on College Program
+
+On successful completion of the internship, students will be able to:
+
+1. Develop work habits, skills and attitudes necessary for job success
+2. Identify, record, and carry out performance objectives (agreed upon by the employer, or supervisor) related to their job assignment
+3. Develop communication, interpersonal and other critical skills needed to function successfully in the role and similar roles
+4. Develop industry-specific technical skills and knowledge needed to function successfully in the role and similar roles
+5. Acquire employment contacts leading directly to a full-time job following graduation from college.
+
+**HASS1010 Marxism Leninism Philosophy (Philosophy, Science and Society)**
+
+Credit: 3
+
+1. Understand the basic philosophical foundations of Marxism-Leninism, including dialectical materialism and historical materialism
+2. Explain its significance in the development of Vietnam’s state ideology and relevance to other areas of society including history, politics and economics
+3. Know that Vietnamese philosophy features elements of syncretism and be able to describe those elements (e.g., Marxism-Leninism, Confucianism, Buddhism, Daoism, etc.)
+4. Describe, evaluate and compare different answers to foundational philosophical questions such as “what exists?”, “what is knowledge?”, and “what is right and wrong?”
+5. Understand and assess different approaches to the nature of science and scientific progress
+
+**HASS1020 Marxism-Leninism Political Economy (Global Political Economy)**
+
+1. Demonstrate an understanding of the complexity of how the world is interconnected through the political economy.
+2. Develop an informed understanding of conceptual terms and theoretical approaches used in understanding the global economy.
+3. Understand the transformation of Vietnam in the context of the global political economy.
+4. Cultivate a critical-minded awareness of major trends in the global political economy.
+5. Acquire an informed understanding of the rise of China and India and the resulting impacts on Vietnam, ASEAN, and the world.
+
+**HASS1030 Scientific Socialism (Politics and Social Change)**
+
+Credit: 2  
+Prerequisite: NA
+
+1. Describe and explain the concepts of politics and social change of Vietnam and around the region, and acquire some lexicon of the subject;
+2. Understand how politics and political systems are key to socio-economic developments, including but not limited to the Marxist-Leninist views;
+3. Understand the ways politics affects economic management, and help determine national success
+4. Compare Vietnam’s national development with national efforts elsewhere in Asia;
+
+**HASS1041/42 Ho Chi Minh Ideology (Vietnam History and Culture II)**
+
+1. Know the major events, persons, and historical conditions the led to the creation and development of Ho Chi Minh Ideology and engage Ho Chi Minh Ideology as both a historical and living body of thought.
+2. Consider the ongoing transformation of Ho Chi Minh thought and its significance in history and for Vietnam’s future.
+3. Critically review historical artifacts, including textual documents, art, literature, archeology, and accounts of informants and grasp the historical factors and precedents that relate to contemporary issues
+4. Gain ability to apply historical and cultural knowledge to understanding and analyzing contemporary problems
+5. Present historical evidence-based arguments and conduct probing discussions about challenging historical subjects
+6. Explore multiple perspectives about the past, especially the past as understood from the vantage of former historical actors.
+
+**HASS1050 History of the Communist Party (Vietnam History and Culture I)**
+
+1. Know the major events, persons, and historical conditions the led to the creation and development of the Vietnamese Communist Party
+2. Critically review historical artifacts, including textual documents, art, literature, archeology, and accounts of informants.
+3. Grasp the historical factors and precedents that relate to contemporary issues and gain the ability to apply historical and cultural knowledge to understanding and analyzing contemporary problems
+4. Present historical evidence-based arguments
+5. Explore multiple perspectives about the past, especially the past as understood from the vantage of former historical actors.
+
+**HASS1070 Cross-Cultural Navigation**
+
+1. Understand the ways in which individual identities, values, and perceptions and biases are shaped by cultures and different forms of life
+2. Know the theories and practice related to the impact of culture in our daily ecologies in local and global contexts
+3. Identify and understand the intersection of one’s own and others’ cultural identities
+4. Apply knowledge of practice, theory, and personal reflection of different cultures to a particular issue that requires collaboration or cooperation between individuals or groups from different cultural backgrounds
+
+**HASS1100 Introduction to International Relations**
+
+1. Know the main actors, structures, and processes of international relations
+2. Understand the basic theoretical principles of international relations and compare the competing underlying frameworks on human and social nature
+3. Identify the respective objectives of international organizations in international politics, collaboration, and cooperation
+4. Explore a case study, problem-solving scenario or dilemma involving international relations and devise a strategy/solution supported by theory and solid argumentation
+5. Critically assess alternative strategies and points of view on complex scenarios requiring international relations
+
+**ARTS1030 Art Appreciation and Application**
+
+1. Demonstrate an understanding and appreciation of arts and visual arts in general, including their function, and historical, religious, cultural, social, and environmental contexts and relevance;
+2. Understand and define the basic principles of arts, visual arts, and design; explain and analyze a work of art from an informed and objective viewpoint, its physical attributes and formal construction;
+3. Identify how art works are created and processed;
+4. Make a reference to the significance and application of the arts in students’ own field of studies and interests;
+5. Analyze Vietnam arts and situate Vietnam arts in the global context.
+
+**PERF1010 Artistic Performance and Application**
+
+1. Show improved skill in their chosen artistic field (e.g., music, dance, theatre, visual arts) and express their creativity and individuality through performance(s).
+2. Evaluate and discuss different forms of artistic performance, identifying key elements and techniques, and write reflective assessments on their personal artistic development.
+3. Work well with peers to create and perform artistic pieces, and effectively give and receive constructive feedback.
+4. Clearly communicate the artistic vision and choices behind their performances both verbally and in writing (if required) and develop their skills in presenting artistic work to an audience, including stage presence and audience engagement.
+5. Explore and appreciate a variety of artistic traditions from around the world, with a special focus on Vietnamese culture, and place their own artistic work in a wider cultural and historical context.
+6. Plan, organize, and complete an artistic performance project from start to finish, demonstrating good time management and organizational skills.
+7. Understand and apply ethical considerations in artistic performance, including respecting intellectual property and cultural sensitivities, and behave professionally during rehearsals, performances, and collaborative projects.
+
+**Study Abroad**
+
+On successful completion of the study abroad program, students will be able to:
+
+1. Develop skills and self-confidence for interacting with people from a different location and culture
+2. Competently navigate living, studying and potentially working in a different location and culture
+3. Understand how different backgrounds and cultures impact one another’s views, values, behaviours, and biases
+4. Reflect on how the experience has produced a global mindset and the values of being a global citizen
+5. Build life-long connections and a network of partners for academic study, professional and personal life
+
+**CHS1020 Introduction to Healthcare Communication**
+
+1. Demonstrate active listening and verbal and non-verbal communication techniques to enhance professional interactions
+2. Establish trust and rapport demonstrating empathy, respect and professionalism
+3. Identify potential communication challenges such as cultural differences, language and physical barriers and emotional distress
+4. Communicate effectively and be able to receive and give feedback to team members
+5. Reflect on the importance of confidentiality, sensitivity, and respect in all forms of healthcare communication
+
+**CHS1000 Introduction to Healthcare Informatics**
+
+1. Describe the principles and challenges associated with combining information sciences, data, and the healthcare domain
+2. Effectively utilize Zotero as the software for publishing and managing bibliographies, citations and references for scientific research and writing
+3. Describe the importance of data standards and interoperability in the context of healthcare and health-related fields
+4. Describe the components of an electronic health/medical record system, including interoperability and health information exchanges
+5. Describe the importance of data security and privacy in the context of healthcare and health-related fields
+
+**CHS1030 Application of the Arts for Therapy and Wellbeing**
+
+1. Explain how the arts and humanities contribute to therapeutic practices and well-being across personal, professional, and community contexts
+2. Describe the diverse forms of artistic expression and how their therapeutic potential could support emotional, mental, and physical health
+3. Reflect on personal and professional impact of creative engagement on emotional awareness and self-care
+4. Apply creative techniques to develop activities aimed at enhancing emotional intelligence and empathy, reducing stress, and promoting mindfulness
+
+### Appendix VinCore PLOs and Blocks mapped to EXCEL
+
+The program learning goals and block learning outcomes are aligned with the VinUni mission, core value and generic graduate attributes EXCEL[[1]](#_ftn1): Empathy, Exceptional Ability, Creativity, Entrepreneurial Mindset, and Leadership Spirit.
+
+- **Pillar**. **Block**. **PLO**. **E**. x. **C**. **E**. **L**.
+- 1. Character. 1.1. Enterprise and Innovation. PLO1: Lead and innovative within the corporate/professional environment [Competence]. x. x. x.
+- 1.2. Leadership Mindset. x. x. x.
+- 1.3. Civic Responsibility. PLO2: Demonstrate a strong sense of ethics, civic responsibility, and community service. [Attitude]. x.
+- 1.4. Ethics. x. x.
+- 1.5 Community Service Learning. x. x. x. x. x.
+- 2. Career. 2.1. Working with the Brain. PLO3: Possess critical and creative thinking skills [Skill]. x. x.
+- 2.2. Working with Technology. PLO4: Apply basic computational and IT knowledge into daily like and work [Skill]. x.
+- 2.4 Working with Others. PLO5: Communicate and manage teams through multimedia formats using written and spoken language. [Skill]. x. x. x.
+- 2.4. Working with Self. PLO6: Realize one’s strengths and areas of improvement and pursue lifelong learning. [Attitude]. x. x.
+- 2.5. Internship. x. x. x. x. x.
+- 3. Connections. 3.1. Integrated Vietnam Studies. PLO7: Think critically and reflect on topics related to the arts, culture and humanity [Knowledge]. x. x. x.
+- 3.2. Sustainability and Global Citizenship. PLO8: Explain the importance of sustainability and globalization [Knowledge]. x. x. x.
+- 3.3. Creative Arts. PLO7: Think critically and reflect on topics related to the arts, culture and humanity [Knowledge]. x. x. x.
+- 3.4. Global Experience. PLO9: Display a strong sense of patriotism while maintaining the characteristics of a global citizen [Attitude]. x. x.
+
+[[1]](#_ftnref1) <https://policy.vinuni.edu.vn/all-policies/admitted-and-graduating-student-attributes/>
+
+FW-VC-001-V2.0
+
+Curriculum
+
+VinCore Curriculum Taskforce
+
+Jun 20, 2025
+
+VinUniversity Students, Staff and Faculty
+
+Internal
+
+- Revision: V1.0. Date: Sep 04, 2024. Author / Editor: Developed by: VinCore Curriculum Taskforce   Reviewed by: VinCore External Review Committee and Educational Affairs Committee   Approved by: Provost. Description: First release issued in conjunction with Decision No. 475/2024/QĐ-VUNI, dated September 4, 2024, by the Provost of VinUniversity..
+- Revision: V2.0. Date: Jun 20, 2025. Author / Editor: Developed by: Program Director of VinCore  Reviewed by: VinCore Committee  Approved by: Educational Affairs Committee. Description: 1. Revised Program Learning Outcomes (PLOs) 2. Recommended Study Plan 3. Addition of new VinCore Courses 4. Updated mapping of courses to PLOs and EXCEL 5. Switching of compulsory course for Working with Technology to AI Literacy.
+
+You can download this document here: VinCore Curriculum Framework
+
+## English Language Requirements For Undergraduate Admissions
+
+## **1. PURPOSE**
+
+This guideline is to establish the English requirements for admission to the full-time undergraduate programs at VinUniversity.
+
+## **2. AREA OF APPLICATION**;)
+
+This applies across the University and to applicants entering undergraduate programs. These requirements are for entry to the University only.
+
+## **3. CONTENT**;)
+
+### **3.1. General principles**
+
+1. As the medium of instruction at VinUniversity is English, it is important that all admitted students have a suitable proficiency in English to learn and communicate most effectively. VinUniversity will assist candidates who are recommended for admission but do not meet the minimum requirements for admission (refer to conditional admission) to improve their English skills, but students are ultimately responsible for meeting the entry requirements.
+2. This guideline should be read in conjunction with relevant VinUniversity policies and requirements.
+3. Applicants, whether domestic or international, must provide evidence that their English language proficiency meets the minimum requirements for admission to any VinUniversity undergraduate program, no later than August 30 of the admission year in order to be fully enrolled in their admitted program without any conditions.
+4. Applicants who do not meet the English requirement by this deadline may still be considered for conditional admission, subject to the conditions, limitations, and compliance requirements outlined in Section 5.
+5. Applicants must submit accepted evidence of meeting the English language requirements to VinUni Admissions Portal. The University reserves the right to require that an applicant undertakes an English test in addition to any other evidence of English proficiency provided.
+6. The University, through the Admissions Office in coordination with the Registrar’s Office, reserves the right to verify the authenticity of any submitted certificates. Any instances of alteration or forgery will be strictly dealt with and could result in the revocation of any offer of admission or enrollment.
+
+### **3.2. Recognized English language proficiency mechanisms**
+
+The following mechanisms can be used as evidence of English language proficiency:
+
+#### **3.2.1. English language proficiency tests**
+
+The following English language proficiency tests and scores are recognized by VinUniversity as meeting the standard minimum English language requirements, provided that the test results were obtained within two (02) years prior to May 15 of the relevant admission year. May 15 serves as the official validity cut-off date for all admission rounds in that academic year.
+
+*For example: For Academic Year 2026–2027, May 15, 2026 is the official validity cut-off date for all admission rounds. Test results obtained before May 15, 2024 will not be accepted, regardless of the test provider’s stated validity period.*
+
+- ***#***. ***English language proficiency tests***. ***Minimum required scores***.
+- 1. International English Language Testing System (IELTS) Academic module. An overall score of 6.5, with no individual band score lower than 6.0. One Skill Retake results are accepted subject to standard validity requirements; updated results must be submitted by August 30 of the admission year.  Note: IELTS General Training module tests are not currently accepted..
+- 2. Test of English as a Foreign Language – internet-based test (TOEFL iBT). For TOEFL iBT Test Taker before Jan 2026: A score of 79 with no individual skill below 15. For TOEFL iBT since Jan 2026: An overall score of 4.5 out of 6, with no individual skill below 3.5.  Note: Other forms of the TOEFL, including the Paper-Based Test (PBT) and the Institutional Testing Program (ITP), are not accepted..
+- 3. Pearson Test of English (PTE Academic). An overall score of 58 with no communicative skills scores less than 50..
+- 4. Cambridge English Qualifications (using the Cambridge English Scale). An overall score of 176 with no skill below 169 in any Component. Accepted tests:  ·       C1 Advanced (formerly known as CAE) or  ·       C2 Proficiency (formerly known as CPE) or  ·       Linguaskill (New and enhanced Linguaskill effective April 2025 taken in person at a recognized test center).
+- 6. Vietnamese Standardized Test of English Proficiency (VSTEP). Result is equivalent to VSTEP Level 5 C1 level..
+
+**Note:**
+
+1. Other English language proficiency tests not listed above may be considered on a case-by-case basis by the Office of the Registrar after consulting with the College of Arts and Sciences. In general, online tests or at-home tests are not considered valid (i.e. IELTS Indicator, IELTS Online, TOEFL iBT Home Edition, The Duolingo English Test, etc.) for evidencing English proficiency to meet the entry requirements at VinUniversity.
+2. Results from multiple tests cannot be combined to meet the minimum requirements unless otherwise
+3. Where multiple test results are submitted, the most recent valid test result will normally be used as evidence of English language proficiency, unless otherwise specified.
+4. If subsequent evidence is provided which demonstrates that the applicant’s English language proficiency is insufficient, the University, through the Admissions Office, reserves the right to change an offer of admission to conditional on meeting English language
+5. The TOEFL institutional code for VinUniversity is **0506**. Applicants may use this code to   report their TOEFL results to the university.
+
+#### **3.2.2. Citizenship/resident status**
+
+Citizens or permanent residents of a majority English speaking country who have undertaken secondary and/or tertiary study in English, at a recognized institution, in the national education system, will be considered to have met the VinUniversity English proficiency requirements and will not need to take an English proficiency test. Countries recognized as majority English speaking are based on the guidance of the government of the United Kingdom and can be found  here.
+
+#### **3.2.3. Prior study**
+
+Applicants will be considered to have satisfied VinUniversity’s English proficiency requirements, and will therefore not be required to submit standardized English test results, if they meet the following conditions:
+
+1. Successful completion of at least two (02) years of full-time secondary (Years 11–12 or equivalent) or tertiary education within the last four (04) years, with English as the sole or primary medium of instruction.
+2. The education must have been undertaken in either:  
+   (a) a majority English-speaking country (as listed in 3.2.3), or  
+   (b) a recognized international high school in the applicant’s home country that is accredited by at least one of the following bodies:
+   * IB (International Baccalaureate) accreditation
+   * Cambridge Assessment International Education (CAIE)
+   * Pearson Edexcel
+   * CIS, WASC, NEASC, ACS, or MOET-recognized international school accreditation
+   * Schools delivering A-Level, IB Diploma, AP, or other internationally benchmarked curricula
+
+3. Successful completion is defined as: Passing all attempted subjects, with at least 50% being “Pass” or better in each assessable period.
+
+4. VinUniversity reserves the right to:
+
+* + Request additional documents to verify English-medium instruction,
+  + Assess curriculum rigor,
+  + Reject schools that do not meet international quality standards,
+  + Require applicants to submit a recognized English test result in section 3.2.1.
+
+5. Recognized international qualifications currently accepted by VinUniversity include**:**
+
+* + International Baccalaureate Diploma Programme (IBDP)
+  + GCE A-Level
+  + Singapore-Cambridge A-Level
+  + Advanced Placement (AP)
+  + Australian Tertiary Admission Rank (ATAR)
+  + NCUK International Foundation Year (IFY) — evaluated based on NCUK grading and equivalent UCAS tariff standards.
+
+## **4. ENGLISH PROFICIENCY VARIATIONS AND CONDITIONAL ADMISSION**;)
+
+4.1. All applicants must meet the English language requirements of the University as outlined in this Policy. Requests for exceptions or variations for particular candidates or programs must be submitted to the Admissions Committee (or relevant Committee) for validation and approved by the Provost. Exceptions shall only be granted under exceptional and well-documented circumstances.
+
+4.2 Beginning in the 2026–2027 academic year, VinUniversity will discontinue the Pathway English Advanced courses. Students who achieve an overall IELTS score of 6.0 (with no sub-score below 6.0) or equivalent, or an overall 6.5+ with only one (01) individual band score below 6.0 (or equivalent), will be granted conditional admission.
+
+4.3 Conditional admission shall not apply to the Medical Doctor (MD) program. Applicants to the MD program must fully meet the English language entry requirements by 30 August in order to be admitted and commence official enrollment in the program.
+
+4.4 Conditionally admitted students will have restricted course registration and must meet the English entry requirement no later than the final day of the first semester of their first academic year. Course registration framework:
+
+- **Category**. **Group 1 — IELTS 6.0 (no skill below 6.0) or equivalent**. **Group 2 — IELTS 6.5+ with no more than one skill below 6.0**.
+- VinCore course regisrtation. All Colleges. 1. Agile Innovation  2. Healthy Lifestyle  3. HASS1041 (delivered in Vietnamese). 1. Agile Innovation  2. Healthy Lifestyle  3. HASS1041 (for section delivered in Vietnamese)  4. Introduction to Managing Skills  5. Business Ethics  6. Critical Thinking  7. Introduction to Law  8. Arts/Music Appreciation  9. Big Ideas(subject to schedule availability).
+- Major course registration. CBM. No major courses permitted. Marketing and Business Statistics only (subject to schedule availability).
+- CHS (MD). Not applicable.
+- CHS (BN). All major courses permitted. All major courses permitted.
+- CAS. First-Year Seminar course only. – All major courses of BA in Psycology and BA in Economics permitted – Only major courses permitted for BA in Multi Communication should be:  \* COMM1010 Introduction to Communication  \* COMM2021 Communication Modalities.
+- CECS. All major courses permitted. All major courses permitted.
+
+4.5 If a student is unable to meet the English entry requirement by the end of Semester 1, the University, through the Office of Registrar, may grant a one-time extension to the end of Semester 2 on a case-by-case basis.
+
+* During this period, the student shall be subject to restricted course registration and is required to independently plan and take responsibility for improving their English proficiency, following the guidance provided by the Office of Registrar and the home College.
+* At the end of Semester 2, the student’s continuation of enrollment shall be determined through an academic review, conducted by Student Awarding and Disciplinary Committee, taking into account the student’s overall academic performance, progress toward meeting the English language requirement, and compliance with the approved improvement plan, in accordance with University regulations.
+* In all cases, as a condition for graduation, students must demonstrate English language proficiency at or above the level required by the University for degree conferral.
+
+## **5. ROLES AND RESPONSIBILITIES MATRIX**;)
+
+- **Step**. **Responsible Unit**. **Role**. **Deadline**. **Platform/Portal**.
+- Initial Application Check. Admissions Office. Verify English proficiency evidence upon submission. Submission Deadline for Applicants. At latest, one week before the start of instruction. Admissions Portal.
+- Evidence Verification (English language proficiency tests). Registrar Office For special cases, the Registrar may seek consultation from the College of Arts and Sciences (English Department) for additional guidance and evaluation. Verify and authenticate submitted evidence. Within 2 weeks before the first day of move-in. Admissions Portal/Verification System (if any).
+
+GDL-REG-002-V4.1
+
+Guideline
+
+Apr 15, 2026
+
+Full-time undergraduate programs
+
+- Revision: V1.0. Date: Jan 08, 2021. Author / Editor: Developed by: Faculty of Arts and Sciences, Office of Registrar  Reviewed by: Educational Affairs Committee  Approved by: Provost. Description: First released.
+- Revision: V2.0. Date: Dec 23, 2024. Author / Editor: Developed by: Admissions Department, English Department.   Reviewed by: Educational Affairs Committee   Approved by: Provost. Description: Update English language proficiency tests; prior study recognization; English Pathway Programs, roles and responsibilities.
+- Revision: V3.0. Date: Jul 31, 2025. Author / Editor: Developed by: Registrar’s Office, Admissions Department, English Department.  Reviewed by: Educational Affairs Committee  Approved by: Provost. Description: Update Linguaskill as an accepted test following the CEFR scale and validity cut-off date of English language proficiency tests..
+- Revision: V4.0. Date: Jan 14, 2026. Author / Editor: Developed by: Registrar’s Office, Admissions Office.  Reviewed by: Educational Affairs Committee  Approved by: Provost. Description: Update required cut-off date for score submissions, VinUni placement test, English Pathway course, prior study recognization, variations and conditional admissions.
+- Revision: V4.1. Date: Apr 15, 2026. Author / Editor: Developed by: Registrar’s Office, Admissions Office.  Reviewed by: Educational Affairs Committee  Approved by: Provost. Description: Update TOEFL iBT Score requirement.
+
+You can download this document here: English Language Requirements For Undergraduate Admissions
+
+## Vietnamese Language Program Guidelines For International Students
+
+## **1. Purpose**
+
+The purpose of this guideline is to ensure that the international students at VinUniversity’s College of Health Sciences (CHS) achieve sufficient proficiency in the Vietnamese language, specifically to enable effective for effective communication during clinical clerkships.
+
+## **2. Scope**;)
+
+This guideline applies to all international full-time students enrolled in the Medical Doctor (MD) and Bachelor of Nursing (BN) programs at the College of Health Sciences, beginning with the 2025-2026 cohort. It is also open to other VinUniversity students interested in learning Vietnamese.
+
+## **3. Structure of the Vietnamese Language Program**;)
+
+The Vietnamese Language Program includes two components:
+
+* General Communication: Required for CHS students; available for all VinUniversity students interested in learning Vietnamese.
+* Medical Vietnamese: Required for CHS students only.
+
+The detailed program:
+
+- Level. General Vietnamese  (Hours). Medical Vietnamese  (Hours). Total Hours. Credits.
+- Beginner – A1. 60. 0. 60. 4.
+- Elementary – A2. 60. 30. 90. 6.
+- Intermediate – B1. 60. 60. 120. 8.
+- Upper-Intermediate – B2.1. 75. 37.5. 112.5. 7.5.
+- Upper-Intermediate – B2.2. 75. 52.5. 127.5. 7.5.
+
+\*Note:
+
+* Medical Vietnamese is mandatory for CHS undergraduate students, while other students may join voluntarily.
+* The framework is grounded in Circular No. 17/2015/TT-BGDDT, which outlines the Vietnamese Language Proficiency Framework for Foreigners.
+* The structure of the program is subject to change based on student needs, outcomes, and program requirements, with approval from the relevant governing committees at both the College of Health Sciences level and VinUniversity level.
+
+## **4. Expected Outcomes**;)
+
+4.1. Expected Vietnamese language proficiency for CHS international students:
+
+* MD Students: must achieve B2-equivalent proficiency in speaking and listening, and B1-equivalent proficiency in writing and reading prior to entering the clinical training phase (beginning in the 4th year).
+* BN Students: must achieve A2-equivalent proficiency in all four skills (listening, speaking, reading, and writing) prior to entering the clinical training phase (beginning in the 3rd year).
+
+4.2. CHS international students in the MD program: upon enrollment must demonstrate Vietnamese ability at the level of A2-equivalent. VinUniversity will offer proficiency exams for all international MD students. BN program does not require a Vietnamese language proficiency level at the point of entry.
+
+4.3. Non-CHS international students: Encouraged to take the course if interested, but without specific outcome requirements.
+
+4.4. Vietnamese language studies will be recorded on the transcripts of international students who fulfill the course requirements and pass the exams specified by the course director.
+
+## **5. Consequences for Students Not Achieving the Required Proficiency Level**;)
+
+5.1. CHS international students who fail to achieve the required language proficiency levels will not be permitted to advance to the next academic year, regardless of their academic performance in other subjects. Specifically:
+
+* MD program: Students must achieve B2-equivalent proficiency in speaking and listening, and B1-equivalent in writing and reading to advance to Year 4.
+* BN program: Students must achieve A2-equivalent proficiency to advance to Year 3.
+
+5.2. CHS, in collaboration with the College of Arts and Sciences (CAS) and external vendors, will organize a Vietnamese language proficiency exam at regular intervals to help students reassess their proficiency level. If students achieve the required proficiency, as demonstrated by the exam results, they may then progress to the clinical training phase. Program Directors, with the approval from the Dean, have the discretion to waive this requirement in exceptional circumstances.
+
+5.3. Only the Vietnamese Language Program described in item 3 of this document is sponsored by VinUniversity. CHS international students are responsible for finding additional learning resources, such as learning materials or instructors, if needed, to help them achieve the required proficiency and they are responsible for covering any associated costs.
+
+## **6. Collaboration Between the College of Health Sciences and the College of Arts and Sciences** ;)
+
+6.1 Assigned **College of Arts and Sciences** (CAS) faculty and staff are responsible for organizing training activities, including contracting with the vendor, scheduling courses during the summer and academic year, and monitoring non-CHS students.
+
+6.2 Assigned CHS faculty and staff are responsible for developing the Medical Vietnamese component, including creating learning materials and assessment plans, and monitoring and assessing CHS students to ensure they meet the required outcomes.
+
+6.3 The program directors of the MD and Nursing programs, along with designated faculty members from CHS and CAS, will review, update, and revise the Vietnamese Language Program curriculum annually or as needed based on student needs, outcomes, and program requirements.
+
+## **ABBREVIATION AND DEFINITION**;)
+
+- **Term**. **Definition**.
+- **BN Program**. Bachelor of Nursing.
+- **CHS**. College of Health Sciences.
+- **MD Program**. Medical Doctor Program.
+- **CAS**. College of Art and Sciences.
+
+The purpose of this guideline is to ensure that the international students at VinUniversity's College of Health Sciences (CHS) achieve sufficient proficiency in the Vietnamese language, specifically to enable effective for effective communication during clinical clerkships.
+
+GDL-CHS-005-V2.0
+
+Guidelines
+
+College of Health Sciences
+
+May 04, 2026
+
+- Revision: V1.0. Date: Oct 30, 2024. Author / Editor: Prepared by: College of Health Sciences  Reviewed by: Educational Affairs Committee  Approved by: Provost. Description: First release.
+- Revision: V2.0. Date: May 04, 2026. Author / Editor: Prepared by: Bachelor of Nursing  Reviewed by: College of Health Sciences   Approved by: Provost. Description: Second realease.
+
+You can download this document here: Vietnamese Language Program Guidelines For International Students
+
+## English Language Proficiency Requirements For Graduation At VinUniversity
+
+This regulation establishes the English language proficiency requirements for graduation from undergraduate and graduate programs at VinUniversity, ensuring that all graduates possess the necessary English proficiency and skills to succeed in their academic and professional endeavors.
+
+## **2. SCOPE**;)
+
+This regulation applies to all undergraduate and graduate students enrolled in full-time programs at VinUniversity.
+
+## **3. GENERAL PRINCIPLES**;)
+
+3.1. As English is the medium of instruction at VinUniversity, all students must demonstrate a high level of English proficiency before graduation.
+
+3.2. Students must meet or exceed the English proficiency standards required for admission to maintain their language skills throughout their academic study.
+
+## **4. GRADUATION REQUIREMENTS**;)
+
+### **4.1. English Language Entry Requirements**
+
+To be eligible for graduation, students must provide evidence of English language proficiency through one of the accepted methods listed in the VinUniversity English Entry Requirements Policy.
+
+For students enrolled in master’s or doctoral programs, the entry requirements can be met if they received a bachelor’s degree or higher with English as the primary language of instruction or with other qualifications as specified in the VinUniversity Admissions regulations and/or the VinUniversity English Entry Requirements Policy.
+
+### **4.2. Academic Performance**
+
+Undergraduate students who have completed all required English language courses by means of a passing grade, including Academic English or Fundamentals of Academic Writing courses and any required Pathway English courses, are considered to have met the English proficiency requirements for graduation.
+
+Graduate Medical Education (GME) residents who have either submitted a valid certificate equivalent to Level 4 or higher based on the 6-level Foreign Language Proficiency Framework for Vietnam (VSTEP) or completed the Medical English course with a passing grade have demonstrated sufficient English proficiency to graduate.
+
+## **5. EXEMPTIONS**;)
+
+Students who are citizens or permanent residents of majority English-speaking countries (see link) are exempt from needing to provide additional proof of English proficiency for graduation.
+
+## **6. IMPLEMENTATION**;)
+
+6.1. The Office of University Registrar is responsible for verifying students’ English proficiency status before approving them for graduation.
+
+6.2. Students are encouraged to meet these requirements by the beginning of their final academic year to ensure timely graduation.
+
+6.3. The University reserves the right to require additional English language assessment if deemed necessary.
+
+VUNI.78
+
+Aug 03, 2024
+
+VinUni's full-time undergraduate and postgraduate programs
+
+- Revision: v1.0. Date: Aug 03, 2024. Author / Editor: Prepared by : Office of University Registrar; College of Arts and Sciences (English Department)  Reviewed by: Educational Affairs Committee   Approved by: Provost. Description: First release.
+
+You can download this document here: English Language Proficiency Requirements For Graduation At VinUniversity
+
+## Procedural Guidelines for Credit Transfer Requests
+
+### **1. Purpose**
+
+The procedure outlines the credit transfer process to support the Article 13 of the Academic Regulations in implementing the policy in a manner consistent with the requirements of credits and its relevance with the policy.
+
+### **2. Area of application**
+
+These guidelines apply to all full-time students, who are currently enrolled and registered as undergraduate students, and wish to request a transfer of credits that earned from other external study programs to their program at VinUni.
+
+### **3. Content**
+
+#### **3.1 Timeline**
+
+- **Submit the request between**. **Normally processed by**.
+- During the first week of the semester – applications must be submitted no later than the published due date as outlined in the Important Dates for enrolments for the study period.. Within 1 week after the add/drop period end.
+
+#### **3.2 Undergraduate Transfer Credit Requirements**
+
+* The University does not accept courses taught in high school to high school students, even if the college provides a transcript of such work.
+* The University does not accept online/distance learning course credit for courses taken outside of VinUniversity.
+* The syllabus must cover 80% or more of the material covered in the VinUni course; use a standard textbook equivalent to that used in the VinUniversity’s course; include examinations, writing, projects, or other submitted work, produced individually or collectively, that is roughly as extensive as that required in the equivalent VinUniversity courses; indicate roughly equivalent meeting hours as are required in the equivalent VinUniversity’s course.
+* The total number of credit transfers should not be more than 50% of the total credits for the entire program according to Article 13 of the Academic Regulations.
+
+#### **3.3 Procedures for the implementation of transferring of credit request**
+
+Find the **6 step**s for the implementation of transferring of credit request HERE
+
+#### **3.4 Academic Year Acknowledgement**
+
+- **Student Application**. **Student Eligibility**. **Process**. **Decision**.
+- **Academic year acknowledgment** Students apply for acknowledgment of study year.. * Received approval for multiple courses credit transfer. * Completed at least one year of undergraduate or higher level of healthcare training program in Medicine, Nursing, Pharmacy, Public Health, and Biomedicine. * Year of completion should not be more than 5 years.. * Students submit the approval from multiple courses credit transfer. to Program Director. * Program Director will establish a Review Committee to evaluate an application. * Program Director as Committee Chair to proceed for Dean’s final approval. * **Committee Review for the application** including *(i)* Program Director *(ii)* Office of Registrar or delegation, *(iii)* Faculty/Course Leader or Block Leader-in-charge *(iv)* Chair of Relevant Year Curriculum Committee or delegate. * **Option 1:** Decline – *Student will continue to study in the academic year that he/she enrolled)* * **Option 2:** Fully approval – *Students will be transferred to the senior year if there is no conflict with the pre-requisite requirement.*.
+
+#### **3.5 Withdrawal of Credit**
+
+The University reserves the right to withdraw credit where an error has been made in assessing an application or where the documentation provided by the applicant is incomplete, invalid or fraudulent. The Registrar and Program Director are responsible for ensuring that credit is withdrawn in such circumstances and will consult with the College Dean (or nominee) and undertake any other action as required in order to ensure compliance with University policies. Credit already granted may not be withdrawn due to changes made to the provisions of the Credit Transfer – Academic Policy or related procedures.
+
+#### **3.6 Mechanisms for a Review and Appeal**
+
+Applicants for credit who are dissatisfied with the outcome of a credit application may request a review of the decision. Such a review request must be accompanied by a substantiated statement concerning the basis for the review.
+
+## **FAQs**
+
+**Frequent Asked Questions** can be found HERE (SharePoint)
+
+VUNI.13
+
+The Office of University Registrar
+
+Sep 14, 2021
+
+Course Exchange: Transfer Credit, Proficiency Exam, Honors Course, and Individual Study
+
+Academic Regulations for Full-Time Undergraduate Programs
+
+- Revision: V1.0. Date: Sep 14, 2021. Author / Editor: Developed by: Office of Planning and University Registrar  Reviewed by: Program Directors  Approved by: Provost. Description: New Release.
+- Revision: V2.0. Date: Feb 10, 2023. Author / Editor: Developed by: Office of Planning and University Registrar  Reviewed by: Program Directors  Approved by: Provost. Description: Supplement Section 3.2, 3.4 and Appendix 2.
+
+You can download this document here: Procedural Guidelines for Credit Transfer Requests
+
+## Outbound Student Exchange Procedure
+
+This procedure serves as the primary description for full-time students who are interested in and meet the prerequisites for participating in the outbound exchange study programs. This document details the eligibility requirements, the application process, and the timeline for consideration.
+
+This procedure is applied to all active full-time students at VinUni.
+
+## **3. Procedural Principles**;)
+
+3.1. The Outbound Student Exchange Program (OSEP) is based on the principle of equality and mutual benefit. Students can spend a semester or an academic year or a short-term program studying and immersing themselves in one of the partner universities of VinUni or an approved program. There are typically two types of outbound exchange programs for VinUni students:
+
+- **Student exchange on a reciprocal basis**. Students who are accepted into this exchange program will attend one of VinUni’s partner institutions for one or two regular semesters (Fall and/or Spring). The students do not have to pay tuition fees at the host institution. Students will continue to pay tuition fees to VinUni at the same rate as when they study full time at VinUni at the time. However, they are responsible for meeting all other costs of the exchange program. Some of these costs include accommodation, airfare, and transportation, health and travel insurance, living costs, visa costs, books, facilities access (if any). Additional financial support may be available at the time of application and will be informed by VinUni.  The number of exchange slots at each host institution is regulated by the agreement between VinUni and that partner university. Student applicants will undergo a selection process at VinUni for the exchange students. After that, VinUni will send the list of nominated students to the host universities for their assessment and admission decision..
+- **Self-arranged exchange program or externally funded exchange program**. It is also possible for students to study at an overseas institution (whether or not it is a partner university of VinUni) by applying directly to the institution or applying for an external scholarship/grant program. Most universities accept students directly as “Visiting/Exchange Students” on a fee-paying basis or scholarship basis. In this case, the applications normally do not go through VinUni, and admission decisions are made by the host institutions or the external scholarship programs. Before committing to a program, students should research carefully the program and get a full understanding of the Leave of Absence policy or the credit transfer policy at VinUni.  Students will need to get approval in advance from VinUni before joining this program. Students can apply for the credit transfer when they return to VinUni, and the review adheres to the present protocol and process..
+
+3.2. All students who wish to participate in Outbound Student Exchange Programs resulting in credit transfers must fill out an Application Form, which includes the transfer credit agreement. Students who choose to participate in such programs must understand and follow the policies and procedures governing credit transfer. Subject to approval of study plan, courses taken at approved hosts may be transferred into your VinUni degree without delay in graduation.
+
+3.3. Students may apply to both the student exchange program and the integrated degree program, but only one offer will be made at any given time.
+
+3.4. Before accepting an offer, students may withdraw their application at any time.
+
+## **4. Procedure Statement**;)
+
+### **4.1. Eligible criteria for application**
+
+To be eligible for participation in an OSEP, students must:
+
+* Currently be an active full-time student at VinUni
+* Have good academic standing (at least 2.5 CGPA (cumulative grade point average minimum) at the point of application and meet the minimum academic requirements set by the host university.
+* Have no major disciplinary action (Level 3 and up) at the time of application submission.
+* Have completed at least 2 academic semesters at VinUni prior to the OSEP and after the OSEP have at least one academic semester remaining at VinUni before graduation.
+* Have an account of good financial standing at VinUni.
+* Meet all the minimum requirements including the language requirements set by the host institutions. Please note that the minimum requirements from the host universities vary and might be different from those of VinUni.
+
+### **4.2. Tentative Timelines**
+
+- **Semester Exchange**. **Submission Period**. **Review application documents**. **Interview round (optional)**. **Release result**.
+- Spring. July. July – August. August – Sept.
+- Fall. February – March. February – March. March – April.
+- Summer. February – May. February – May. February – May.
+
+*(\*) Time may be subject to changes depending on the actual academic calendar of VinUni and the timelines set by each host institution.*
+
+### **4.3. Application process**
+
+### **Case 1: Nomination by VinUni for exchange at a partner university**
+
+- Step 1. VinUni students who intend to participate in the exchange student program submit the application documents in Global Exchange Application Portal ..
+- Step 2. Application evaluation by the Review Committee.
+- Step 3. Evaluation results will be announced to students for nomination acceptance..
+- Step 4. GSE sends VinUni nominated students’ application dossiers to partner universities for assessment..
+- Step 5. The partner university reviews the nominations, makes the final decision, and issues the Letter of Acceptance to the successful students..
+- *Continue with the steps for the Study plan and credit transfer (item 4.4).*.
+
+### **Case 2: Students search for their own exchange opportunities**
+
+If students would like to study at a university that VinUniversity does not have an exchange agreement with, students can choose to personally plan and finance their studies abroad. It will be their responsibility to apply to the university abroad as well as to ensure that all the practical matters are taken care of. The procedures will be:
+
+- **Step 1**. **Pre-Approval of Study Plan and Credit Transfer** – A**ction by Student:** Submit a detailed study plan and credit transfer application to the Program Director for review and obtain their formal approval..
+- **Step 2**. **Leave of Absence Application** – **A****ction by Student**: Submit the pre-approval form along with a Leave of Absence (LOA) application to the Office of University Registrar. This ensures the proper recording of student status during the self-arranged exchange semester.  – When students are on leave of absence, they are not charged tuition during their absence. However, they remain responsible for fulfilling all tuition requirements upon their return to ensure they meet the criteria for graduation..
+- **Step 3**. **Credit Transfer and Grade Recognition** – **Action by Student**: Upon returning from the exchange programs, students must submit an application for credit transfer to the Office of University Registrar for approval. According to VinUni regulations, credit transfer applications must be submitted within one month after the completion of the exchange program.  – **Action by the Office of University Registrar and Program Director:**   * Validate the courses and grades against the pre-approved study plan. * Record the approved credits and grades (T-Transfer grade) in the student’s academic transcript..
+
+### **4.4. Study Plan and Credit Transfer**
+
+A feasible study plan enables students to progress towards graduation smoothly. To factor in exchange study in their degree program, it is always a good practice to discuss the study plan with the faculty advisors or the Program Director.
+
+**4.4.1.** **Course selection and mapping**
+
+a) Students should take full advantage of the academic opportunities on offer, with the proviso that courses taken should be pitched at the equivalent level to the students’ program at VinUni.
+
+b) Courses selected should respect the principles of progression as far as possible, and should provide students with an adequate preparation for the next stage of their studies on return to VinUni.
+
+c) Students selected to study abroad in an reciprocal exchange program will follow an approved study plan agreed with the relevant Program Director and the current procedure.
+
+d) Students can choose from the following categories at the host University for the Equivalency:
+
+* + VinUni General Education/VinCore courses (except courses required by the MOET). Depending on the VinUni’s curriculum requirements, the courses may be credit or non-credit bearing;
+  + VinUni College core/discipline core/major/concentration/minor courses;
+  + Free elective courses (in accordance with the credit requirements of the curriculum);
+  + Courses in the individually designed concentration/minor.
+
+e) To maintain full-time status, total credits for courses chosen during the exchange semester (at both the host and home universities – if any) must be equivalent to a minimum of 12 credits in accordance with VinUni’s academic regulations. Students who enroll for more credits than the expected norm will not have the demands of a heavier workload taken into account when their grades are converted.
+
+f) The transferred credits will be equivalent to VinUni courses, and the study abroad course must be equivalent to VinUni courses. If the credit is less than VinUni’s, there are two possibilities: a) a required make-up workload (i.e. assignments, readings, etc…), b) enrollment in two or more combined equivalent courses.
+
+g) Common credit conversion
+
+This table serves as a guide for students and advisors to calculate VinUni credit earned through international study. If you are looking for a conversion for an institution that is not in the chart, please contact the Registrar’s office.
+
+- **International Credit System**. **Conversion Multiplier**. **VinUni equivalency**. **Examples/ Remarks**.
+- ECTS. 0.606. 1.65 ECTS = 1 VinUni credit. European universities.
+- Credit Points. 0.625. 6 Credit Points = approx. 4 VinUni Credits or 1.6 Credits = 1 VinUni Credit. UTS (Australia).
+- US Credits. 1. 1 Credit = 1 VinUni Credit. Cornell (US), Korea University, South Korea, Seoul National University, Yonsei University, SKKU, POSTECH, South Korea, Hong Kong University of Science and Technology.
+- Units. 0.25. 4 Units = 1 VinUni Credit. Nanyang Technological University (Singapore).
+- Contact Hours. 0.067. 15 Contact Hours = 1 VinUni Credit.
+
+Note:
+
+* Credit conversion is based on a course-by-course basis and is NOT based on the sum of credit earned. If the program grants partial equivalent credits (eg. 1.5 credits, it is rounded up to the next full credit (eg. 2 credits).
+* Other international credit systems not listed in the above table can be discussed and finalized by the Program Director and the Registrar.
+
+h) Students should finalize their choice of courses and have them approved using the Outbound Student Exchange Program Application Form by the end of their first four weeks at the host institution and submit the final one via email or printed document to the VinUni Registrar’s Office.
+
+**4.4.2. Transfer of Academic Credits and Grade Conversion**
+
+a) The academic grade obtained by students when studying overseas on reciprocal exchange will be counted with the following options:
+
+* + Equivalent required courses should always have their grade transferred (CR/NCR or Letter Grades) in accordance with VinUni grading scheme. Non-required courses (which can be transferred as electives) will be recorded on students’ transcripts at their discretion.
+  + Grade conversion of these is needed for computation of GPA, credits and other calculations as needed for administration.
+
+*(\*) The “T-Transfer” grade will be used to recognize prior learning* *or independent exchange**, but is not applicable to students participating in a reciprocal exchange.*
+
+b) The grading scheme conversion will follow a reasonable standard taking into account the grading characteristics and scales of the host institution and the courses taken, and the corresponding scales used by the college. Where available, international conversion tables will be used. Note that if a student is informed of a converted grade in advance of final reporting, it must be made clear that the grade is a provisional recommendation only and may change. It will be important for students to bring back copies of work and any other evidence to support the grade conversion process.
+
+c) Records of transferred courses on academic transcripts include the name of the host university as well as the transferred courses with grades from the host university and VinUni’s equivalent grades.
+
+**4.4.3. Steps in preparation for the study plan and credit transfer arrangements**
+
+In accordance with VinUni’s policies on credit transfer, students who complete exchange study can apply for transfer credits for courses successfully completed at the host institution.
+
+*Steps in preparation for the study plan and credit transfer arrangements are as below*:
+
+- **Before departure to the host institution:**.
+- **Step 1**. **Review courses available at the host institution** Check out the course information from the websites of host institutions before deciding the exchange venue choices, to ensure that there are suitable courses for you to take. It is quite often that certain courses offered by partner institutions may not be open each term, or certain courses may not be opened to exchange students..
+- **Step 2**. **Review VinUni’s policy on credit transfer and course equivalence** There is no automatic credit transfer, and students must submit a credit transfer application upon completion of the exchange studies for evaluation and approval..
+- **Step 3**. **Discuss the study plan with the faculty advisor and/or the Program Director** This advisory process is important to ensure that students are taking appropriate courses, in the sense that they fulfill the graduation requirements. It would be useful for students to review their major program requirements before seeking advice..
+- **Step 4**. **Apply for course mapping to the College and Office of University Registrar at VinUni** If there is no course equivalence information, students should request for course assessment by submitting the application to the Office of University Registrar. There may be credit system differences between VinUni and the host institution, and the credit conversion adopted by VinUni..
+- **While on exchange**.
+- **Step 5**. **Keep the exchange course syllabus and materials** To support the credit transfer application upon their return to VinUni, students must present an official transcript issued by the host institution. VinUni may also require students to submit course materials, outlines, the syllabus for assessment purposes and any other relevant documents, as it deems appropriate..
+- **Upon return from exchange**.
+- **Step 6**. **Submit credit transfer request** Upon returning from the exchange programs, students must submit an online application for credit transfer to the Office of University Registrar for approval. According to VinUni regulations, credit transfer applications must be submitted within one month after the completion of the exchange program..
+- **Step 7**. **Credits transferred to VinUni transcript** After the formal approval, the credits earned from the host institution will be reflected on students’ academic transcript. Credits obtained can be transferred, while grades obtained at the host institution may or may not be transferred to VinUni, depending on the agreement on the grade equivalency between VinUni and the partner university and the curriculum’s requirement..
+
+Click here to download the Overall flowchart of the outbound student exchange program.
+
+### **4.5. Student Status and Student Responsibilities**
+
+All exchange students must keep the VinUni student status during their study at the host institutions. GSEO will pass the list of exchange students for each semester to the Office of University Registrar.
+
+During the exchange period, students must take courses equivalent to VinUni 12 credits in each regular semester (there is no requirement for exchanging during the summer semester). If the partner university sets a cap on the number of credits, the students must follow the host institution’s regulations to select courses. The exchange student will be treated as a student of the partner university after completing the registration procedures and should obey the rules and regulations of the partner university. Any over or under‐loading must be approved in advance by the Registrar and the Program Director for exceptional cases.
+
+Prior to the outbound exchange programs, it is mandatory that all exchange students will sign a Terms and Conditions for VinUni Outbound Semester/Short Term Outbound Exchange Students confirming their understanding and agreement to the terms and conditions and their responsibilities before, during and after their program. Students need to apply for pre-approval of credit transfer to the Office of University Registrar/Program Director before their departure to study at the host institution, **“****Exchange Student’s Report of arrival****”** to VinUni within two weeks after arriving at the partner university and “Learning Report” within 1 month after arriving at the home university.
+
+## **5. Roles and Responsibilities**;)
+
+- **Units**. **Roles and Responsibilities**.
+- Global Exchange Office (GEO). * Issue and announce information about outbound exchange programs including description of the eligibility requirements for each VinUni’s partner institution. * Be responsible for transmitting information about selected students participating in outbound exchange programs to the receiving institution, maintaining contact with them throughout the exchange period. * Make sure that students are appropriately prepared for their student exchange (i.e., visa preparation, flight booking, etc.). * Work out appropriate mechanisms with partner universities to confirm that exchanges have been completed satisfactorily. * Coordinate pre-departure support for students * Ensure that there are appropriate procedures in place for re-orientation on return to VinUni where appropriate..
+- The Office of University Registrar. * Be the central coordinating office for all exchange credit transfer applications or related-academic issues for students. All inquiries and applications regarding credit transfer should be submitted to the Registrar. * Issue Certificate of Enrollment, Official transcripts, etc. for students to apply for visa and partner university. * Update student status in SIS. * Collect and proceed with Study Plan and Credit Transfer Approval Form by the end of their first four weeks at the host institution, Credit Transfer Form and Official Transcript..
+- College/Program Director/Assigned point of contact. * Make recommendations for committee members when specialized knowledge or representation is required for a – thorough review. * Assume accountability for determining the course equivalence (credits and syllabus) of VinUni and its partner universities. * Provide advisory on study plan and complementary studies selected by students. * Approve the Study Plan and Credit Transfer Pre-Approval Form (if applicable)/Learning Agreement..
+- The Review Committee. * Finalize the nominations and if applicable, financial support with members of the committee during their deliberations; adhere to all applicable guidelines and regulations regarding conflicts of interest and application privacy/confidentiality. * The committee members include Vice Provost; Global Student Exchange Office; College/Faculty representatives and other invited stakeholders (if needed)..
+- Student Applicant. * Research university of choice, suitable program, courses. * Find out more about the university, cost of living, visa requirements, air fares, accommodation as well as travel and medical healthcare insurance. * Discuss with your Program Director on your study plan..
+- Admitted students. * Attend pre-departure session, information sessions, sharing sessions (if any) * Submit Pre-approval study plan, Student Exchange on arrival report, Terms and Conditions Form, Learning Report, Official transcripts of the host university and Credit transfer form (if any) * Comply with the rules and regulations of the host country, and  VinUni. * Follow regulations and rules, code of conduct, terms and conditions of VinUni and Vingroup Scholarship Program (if any)..
+
+## **6.** **Abbreviations and Definitions**;)
+
+- **Term**. **Definition**.
+- *Exchange student*. A VinUni student who has been accepted to study in an exchange program at one of VinUni’s international partner institutions..
+- *Exchange period*. The time period during which an exchange student will study at the receiving/host institution in accordance with the terms of the exchange agreement..
+- *The Review Committee*. A committee at which all members will assess candidates in order to determine who will be nominated to be exchange students and if applicable, how much financial support they will receive for their exchange program..
+- *Management fee*. The fee that exchange students must pay to VinUni prior to beginning their studies at the receiving institution; the amount will be specified in the exchange program announcement (if any)..
+- *OSEP*. Outbound Student Exchange Program.
+- *GEO*. VinUni Global Exchange Office.
+
+**For general inquiries:**
+
+* Global Exchange Office: globalexchange@vinuni.edu.vn
+* SharePoint for Application Information: https://vinuniversity.sharepoint.com/Application-Information​​​​​​​
+
+**For academic-related inquiries:**
+
+* Office of University Registrar: connect-registrar@vinuni.edu.vn and/or
+* Student’s Home College @VinUni​​​​​​​
+
+A webpage dedicated to GLOBAL EXCHANGE: <https://vinuni.edu.vn/global-exchange/>
+
+VUNI.35
+
+Office of University Registrar and Academic Engagement & Student Exchange Department
+
+Dec 12, 2024
+
+All academic units (including Faculties and Colleges) and current students
+
+- Revision: V1.0. Date: Jun 17, 2022. Author / Editor: Developed by: Office of University Registrar, External Engagement Department  Reviewed: Educational Affairs Committee   Approved by: Provost. Description: New release.
+- Revision: V2.0. Date: Mar 29, 2023. Author / Editor: Reviewed: Educational Affairs Committee   Approved by: Provost. Description: Items 4.1; 4.4.1; 4.4.2; Application Form.
+- Revision: V3.0. Date: Jul 19, 2024. Author / Editor: Developed by: Office of University Registrar and Academic Engagement & Student Exchange Department  Reviewed by: Educational Affairs Committee  Approved by: Provost. Description: Item 3.1. Remove Integrated degree program 4.1. Eligible criteria for application 4.3. Application process 4.4.1: Conversion rate 4.5. Student Responsibilities: Add required forms 5. Roles and Responsibilities.
+- Revision: V4.0. Date: Dec 12, 2024. Author / Editor: Developed by: Office of University Registrar and Academic Engagement & Student Exchange Department  Reviewed by: Associate Vice Provost for Academic Administration  Approved by: Provost. Description: Add detailed procedure for Case 2: Students search for their own exchange opportunities.
+
+You can download this document here: Outbound Student Exchange Procedure
+
+## Declaration of Individually Designed Concentration and Minor
+
+## 1. **Purpose**
+
+This guideline serves as a guide for students who meet the requirements to be eligible to design their own Individually Designed Concentration or Minor (IDCM). The purpose is to clarify the process, timeline, requirements, and how their IDCM will be applied.
+
+## 2. **Scope**;)
+
+Applicable to all full-time undergraduate students at VinUniversity.
+
+## 3. **Procedural Principles**;)
+
+This program is intended to foster creativity and allow students to pursue professional goals that the College’s pre-existing concentrations and minors may not serve. Students creating an IDCM will rigorously design an IDC/IDM program consisting of existing VinUni courses. IDCM programs encourage a strong interdisciplinary component. The approved title of the IDCM will appear on the student’s transcript.
+
+Through an IDCM at VinUni, students will:
+
+* Gain multidimensional knowledge by incorporating different areas of study into one concentration or minor
+* Take the ownership of their own learning
+* Become better prepared for jobs in a certain emerging field
+
+## 4. **Procedural Statements**;)
+
+### **4.1. Eligible criteria for application**
+
+* Must have a GPA of 2.5 or better at the time of the proposal (or any proposal for changes to the program) to apply for an IDC or IDM.
+* Must have a faculty advisor (sponsor) in the home College to assist in creating an IDC/IDM proposal. Under exceptional circumstances, a secondary advisor outside of the home College may also serve if the proposed program clearly suggests that such an advisor is a suitable choice for the student.
+* Must be enrolled in one of the Colleges and a current full-time student.
+
+### **4.2. Curriculum requirements**
+
+* Must earn a minimum of 15 credits to declare an IDC or IDM.
+* An IDC shall consist of courses in home College only, while an IDM can be a mixture and all courses can be from other Faculty/Colleges.
+* To accommodate the possibility that selected courses may not be offered at a given time, students should submit one alternate course in the core and two alternate courses in the elective list.
+* No more than seven (07) credits in the proposed Concentration or Minor may be completed or begun at the time of application.
+* Must fulfil the normal distribution of studies requirements of their academic program (for example requirements of general education, college/disciplinary core courses, internship, thesis etc.) and other rules when pursuing a concentration or a minor.
+* Any changes in the concentration/minor program after approval will require written permission of the Program Director or the College’s designee.
+
+### **4.3.** **Timeline**
+
+* Students declaring an IDC or IDM should generally do so by the end of their sophomore year to avoid delays in degree completion.
+* Application deadline:
+  + December 30 in order to be able to register for Spring classes
+  + July 30 in order to be able to register for Fall classes
+* Review deadline:
+  + The Registrar Office’s primary check deadline is 3 (three) days after the submission date.
+  + The College/Faculty’s decision on the IDCM proposal must be obtained no later than 3 (three) weeks from the date of student’s submission. Students must confer with their faculty advisor and reply if the Program Director requests adjustments to the proposal.
+* Drop deadline is the last day of the semester’s course Add period.
+
+### **4.4. Application process**
+
+* Step 1: Study the information/requirements and check the availability of IDC/IDM options
+* Step 2: Choose a Faculty Advisor (sponsor)
+* Step 3: Define the goals/rationale for the proposed IDC/IDM
+* Step 4: Design the program and assemble the proposal
+* Step 5: Submit the application form to the Office of University Registrar
+* Step 6: Registrar checks the requirements and validity of the application
+* Step 7: College PD reviews, validates, and makes the decision
+* Step 8: Inform the student of the result
+* Step 9: Student completes the Declaration Form (if approved)
+* Step 10: Registrar updates the status on the SIS system
+
+*Please check* *the detailed workflow HERE.*
+
+## **5. Abbreviations and Definitions:** ;)
+
+* **Concentration**: A major field of study is the core competence area, comprising a structured group of courses that aims to create a broad and deep intellectual experience in an academic discipline. For example, BBA (Finance) (Finance as a concentration). Concentration requires at least 15 credits from the same College.
+* **Minor:** A minor consists of a structured group of courses that focuses on a particular academic discipline, allowing students to develop some depth of understanding in a subject area or topic of professional interest. For example, Computer Science/Robotics as a Minor of BSEE; AI as a Minor of BBA.
+* **Program Director (PD):** A member of the academic staff in a College or a Faculty responsible for administrative matters relating to curriculum development and assurance of learning of majors/concentrations and minors in an academic program.
+
+## 6. **Roles and Responsibilities**;)
+
+### ***6.1. Student***
+
+* Must research and investigate carefully to define their own expectation IDC/IDM before applying
+* Complete the forms and submit all supporting documents (as necessary) on time
+
+### ***6.2. Faculty advisor***
+
+* Must be a faculty member at the College/Faculty where the applied student is currently enrolled.
+* Must possess expertise in academic courses pertinent to the concentration/minor for which students wish to design IDCM.
+* Assist the students throughout their IDCM application process.
+
+## 7. **Related Documents and Forms**;)
+
+* VinUni Course Catalog
+* Template 1: IDC/IDM Application Form (for application)
+* Template 2: Learning objectives grid
+* Template 3: Undergraduate Declaration of Concentration/Minor Form (submit after approval)
+
+## 8. **Appendices**;)
+
+**IMCM student check sheet**
+
+Submitting IDC/IDM Application Documents Student Checksheet
+
+*Incomplete applications will not be approved*
+
+\_\_\_ Application typewritten (Section A & Section B filled out completely, including advisor’s signature
+
+\_\_\_ Statement of clear rationale for IDC/IDM
+
+\_\_\_ List of proposed/alternate courses that meet the criteria for the application
+
+\_\_\_ Learning objectives grid that include
+
+\_\_\_ IDC/IDM learning objectives
+
+\_\_\_ All proposed and alternate courses
+
+\_\_\_ Each learning objective addressed in at least one course
+
+\_\_\_ Student-designed objectives
+
+*(\*) The declaration form will be completed after the approval of IDC/IDM.*
+
+VUNI.32
+
+Office of University Registrar
+
+Nov 30, 2021
+
+All academic units (including Faculty and Colleges)
+
+- Revision: V1.0. Date: Nov 30, 2021. Author / Editor: Developed by: Office of University Registrar  Reviewed: Educational Affairs Committee  Approved by: Provost. Description: New procedure.
+
+You can download this document here: Declaration of Individually Designed Concentration and Minor
+
+## Guideline for Program Change Request
+
+These guidelines provide a framework for the requests to change enrolment between programs by students, ensuring they are structured, appropriate and transparent.
+
+## **2. Definition** ;)
+
+Request for program change includes:
+
+* Changing of Major (including major/area of concentration/minor). It means that primary College and degree type stay the same.
+* Change of Degree (degree program changes but the primary College/faculty remains the same)
+* Change of College/Faculty (primary College/faculty changes)
+
+## **3. Area of application**;)
+
+These guidelines apply to all full-time students, who are currently enrolled and registered as undergraduate students, and wish to request a change in their academic program during their time of studying at VinUniversity.
+
+## **4. Content**;)
+
+### **4.1 Eligibility criteria for application**
+
+A student can apply for changing the current enrolment if s/he:
+
+* Meets the admission requirements and is eligible for entry into the proposed program/major.
+* Is not currently a first-year or final-year student (applies for Change of Degree/College)[[1]](#_ftn1).
+* Is not subject to consideration of suspension of study.
+
+A student is only eligible for one program change per academic year. Change requests will be processed once per semester, making the change take effect from the beginning of the next semester.
+
+College may set the specific criteria for each program apart from the university generic requirements (academic standing, EXCEL attributes, etc).
+
+If a student received transfer credits from another institution upon their initial enrolment to VinUniversity, the transfer of credit may be re-assessed for the requested change.
+
+[[1]](#_ftnref1) In accordance with MOET’s guideline
+
+### **4.2 Timelines**
+
+- **Submit the request between**. **Normally processed by**. **Effective semester**.
+- 1 July – 15 August. At least one week before the first day of the course registration period for the next semester.. Fall semester.
+- 1 November – January 15. Spring semester.
+
+* Colleges/Faculty may require student’s final grades before approving a program change request. If the request is approved after grades are released, the program change will be made effective for the first available academic semester.
+
+### **4.3 Procedures for the implementation of program change request**
+
+- **Step**. **Responsibility**. **Workflow**. **Time**. **Details**.
+- 1. Student / Academic Advisor. Make a request for program change (FRM06). Start 1 July or 1 November annually. * The student needs to ensure that s/he understands the degree requirement and the qualifications to be accepted into the program to which they want to change (is the change possible? Is the change worthwhile) as degree requirements can vary from one program to another? * The student is required to seek academic advice from the faculty advisor and is strongly encouraged to meet with the relevant program director to discuss the plans with him/her. * In case, the student has come up with the final decision, the student needs to fill in the form FRM06 (<https://vinuni.edu.vn/registrar/registry-service-forms/>) and send it back to the Registrar office (soft copy or hard copy with signatures). * A program change may affect their fees – students need to check any fee differences in advance (if any)..
+- 2. Registrar. Preliminary Check (eligibility criteria)  * If **Yes**: Continue * If **No**: Inform Student. 2 working days since receiving the student’s request.. * Registrar only looks at one program change request at a time. If the student submits a second request while still looking at the first, Registrar will only look at the most recent request, and other requests will be deemed null and void..
+- 3. Dean or delegate. Review student’s application/ request. 5 working days since receiving the application from Registrar. * Registrar submits the application to College for review. The application includes, but is not limited to:   + Application form and letter of interest   + Academic transcript   + Entry admission results   + Student self-evaluation results (if any).
+- Dean or delegate Student. Conduct an interview with the student (optional). 5 working days since receiving the application from Registrar. * The purpose is to re-validate if the student meets the admission requirements for the intended program and understands his/her motivation; and is aware of all requirements (i.e extra courses need to be taken). * Interview may not be required if a program change is a major/minor change within the College. * The meeting notes are added to student’s Records.   (\*) *Most of all, students need to be clearly informed that they may have to take extra courses for the remaining semesters or may have to take extra semesters to complete all the degree requirements.*.
+- 5. College Dean Registrar. Approve. 2 working days since the completion of application review/interview. * Dean decides the formal acceptance and students’ status of scholarship/financial support. * Registrar informs students of the decision and any required follow-up action (for example study plan, the status of scholarship/financial support). * Any change of scholarship/financial support (compared to the approved entry admissions) will need to get approval from the President/Provost (per Delegation of Authority).
+- 6. Registrar. Endorse the formal decision. 2 working days since receiving the final approval. * Provost to endorse the decision (based on Dean’s proposal)..
+- 7. Registrar. Inform students and related departments for the change. 2 working days since releasing the formal decision. * Change the student status on Student Information System. * Inform the change to related departments (SAM, Finance, Library, IT (account), College)..
+
+VUNI.27
+
+Office of Registrar
+
+Jul 26, 2021
+
+- Revision: V1.0. Date: Jul 26, 2021. Author / Editor: Developed by: Registrar Office   Reviewed by: College Dean/Vice-Dean/Program Directors  Approved by: Provost. Description: New release – as guidelines supporting the University Academic Regulations (VU\_HT03).
+
+You can download this document here: Guideline for Program Change Request
+
+## Student Grade Appeal Procedure
+
+This guideline establishes a transparent and equitable process for students to address concerns about their grades. It clarifies the procedures, timelines, and responsibilities involved in grade appeals, ensuring academic integrity and fairness while safeguarding students’ rights to contest and correct their grades promptly.
+
+## **2. Scope** **and Principles**;)
+
+Grade appeals are limited to final course grades. Instructors (including faculty and teaching assistants) have the exclusive right to assign grades based on their professional judgment, and they strive for accuracy, fairness, and transparency throughout the grading process. Students have the right to appeal grades which they believe were affected by clerical errors or were awarded in a biased or arbitrary way. It is the student’s responsibility to initiate the appeal process, and they must provide proof to support their claim. Students should begin the grade appeal process directly with the instructor as soon as possible after grades are released before escalating to higher authorities.
+
+## **3. G****rade appeal procedure**;)
+
+- **Step****s**. **Individual/ Department in charge**. **Tasks**. **Timeline**. **Note**.
+- **1** **– Initial Review**. Student / Instructor. – First consult directly with the instructor to discuss the grade and understand the basis for the grading decision. – If the result does not produce a satisfactory resolution of the student request, or if the student feels the grading was prejudiced, arbitrary, or capricious, the student may appeal in writing in step #2 below.. As soon as possible after the grade is released. – Requests to the instructor should be made by email, not informal channels like verbal, Teams messages, etc. – The instructor updates the grade on Canvas if there are any changes, before submitting the formal gradebook to Registrar’s Office..
+- **2** **– Formal Appeal**. Student / AQA (Testing Unit). – Submit a formal written appeal *(see **Grade Appeal Form****)* detailing the reasons for disputing the grade and any efforts made to resolve the issue, including all relevant supporting documentation to AQA (Testing Unit). – Pay the Exam Score Review fee and submit proof of payment before the appeal can be processed, in accordance with the University’s **Financial Regulations and Tariff (for student)** (Section II – Item 4: Academic Administrative Fee)  – Send the completed form and documentation to both the instructor and AQA (Testing Unit) via email at qualityassurance@vinuni.edu.vn. Within five (05) working days after the official grade posting on Canvas. AQA (Testing Unit) will review the student’s appeal form and send it to the College..
+- **3 – College Review**. Program Director / Designated Committee of the College. – PD reviews the student’s appeal, consults with the instructor, and possibly convenes a meeting including the student, instructor, and AQA (Testing Unit) to discuss the appeal further.. Within five (05) working days from receipt of the appeal from the AQA (Testing Unit).. If an in-depth investigation is required or if there are a significant number of requests for a single program to manage, the timeline may be extended..
+- **4 – Decision**. Program Director / Designated Committee. – PD decides on the appeal – either uphold, amend, or reject the grade based on the appeal’s merits. If the appeal is rejected, provide a detailed explanation. – If the student is dissatisfied with the outcome, they may escalate the appeal to the University Appeals Committee (refer to Step 5).. Two (02) working days to decide and communicate the decision. – PD makes the final decision, signs the form, and sends it to AQA (Testing Unit). AQA confirms the outcome of the appeal and signs. – AQA (Testing Unit) sends an email to inform the student and the instructor of the decision, with the Registrar copied for reference.  – The instructor revises the grades for students on Canvas if there is any change and submits finalized gradebook to Registrar’s Office..
+- **5 – Further Appeal**. University Appeals Committee. – Review the appeal in its entirety, including all documentation and prior decisions.. A final decision must be made within three (03) weeks after final grades have been posted on Canvas. – Members of the University Appeal Committee may come from the Educational Affairs Committee. – The decision made by the university-wide committee is typically final and binding..
+- **6 –** **Record Keeping**. AQA (Testing Unit) / Registrar’s Office. – AQA archives all appeal documents according to university regulations. – Registrar’s Office updates the Student Information System with any changes in course results.. One (01) working day after receiving the signed form. – AQA is responsible for notifying students of the appeal outcome. – Maintain strict confidentiality throughout the process, ensuring that all appeal-related documents are securely stored and only accessible to authorized personnel.  – Registrar’s Office is responsible for maintaining accurate and up-to-date course results for students..
+
+### FORM\_Grade Appeal Form
+
+This guideline establishes a transparent and equitable process for students to address concerns about their grades. It clarifies the procedures, timelines, and responsibilities involved in grade appeals, ensuring academic integrity and fairness while safeguarding students' rights to contest and correct their grades promptly.
+
+PRC-AQA-002-V2.0
+
+Procedure
+
+Accreditation, Testing & Quality Assurance Department (AQA)
+
+Jan 21, 2026
+
+- Revision: v1.0. Date: Jun 12, 2024. Author / Editor: Developed by: The Office of University Registrar  Reviewed by: Educational Affairs Committee  Approved by: Provost. Description: First release.
+- Revision: v2.0. Date: Jan 21, 2026. Author / Editor: Developed by: Accreditation, Testing & Quality Assurance Department (AQA)  Reviewed by: AQA Manager, Registrar Manager  Approved by: Vice Provost of Academic Administration. Description: Updates on department role and appeal payment.
+
+You can download this document here: Student Grade Appeal Procedure
