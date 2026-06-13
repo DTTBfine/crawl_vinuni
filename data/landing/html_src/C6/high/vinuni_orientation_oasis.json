@@ -1,0 +1,28 @@
+{
+  "source_id": "vinuni_orientation_oasis",
+  "url": "https://experience.vinuni.edu.vn/new-students/oasis-program/o-orientation",
+  "source_name": "VinUni OASIS Orientation",
+  "domain": "C6",
+  "subdomain": "orientation",
+  "priority": "High",
+  "source_type": "html",
+  "authority_level": 5.0,
+  "crawl_frequency": "yearly",
+  "status": "Planned",
+  "output_format": "markdown",
+  "note": "Orientation and onboarding",
+  "date_crawled": "2026-06-10T11:23:49.237697",
+  "crawl_depth": 2,
+  "page_count": 1,
+  "content_markdown": "## Page: https://experience.vinuni.edu.vn/new-students/oasis-program/o-orientation\n\nThis block aims to provide students with a comprehensive understanding of the nature, value, and requirements of a university education.\nFreshmen are required to participate in the Week of Welcome. All students are obligated to annually take the Code of Conduct and Academic Integrity Test, with assessment results graded on a pass/fail basis. The tests will be conducted on Canvas and you will be added to the course to complete at the beginning of every academic year.",
+  "pages": [
+    {
+      "url": "https://experience.vinuni.edu.vn/new-students/oasis-program/o-orientation",
+      "parent_url": "seed",
+      "depth": 0,
+      "success": true,
+      "content_markdown": "This block aims to provide students with a comprehensive understanding of the nature, value, and requirements of a university education.\nFreshmen are required to participate in the Week of Welcome. All students are obligated to annually take the Code of Conduct and Academic Integrity Test, with assessment results graded on a pass/fail basis. The tests will be conducted on Canvas and you will be added to the course to complete at the beginning of every academic year.",
+      "discovered_links": []
+    }
+  ]
+}

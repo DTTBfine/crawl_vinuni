@@ -1,0 +1,28 @@
+{
+  "source_id": "vinuni_student_life_support",
+  "url": "https://experience.vinuni.edu.vn/student-life-support",
+  "source_name": "Experience VinUni - Student Life Support",
+  "domain": "C6",
+  "subdomain": "student_support",
+  "priority": "High",
+  "source_type": "html",
+  "authority_level": 5.0,
+  "crawl_frequency": "monthly",
+  "status": "Planned",
+  "output_format": "markdown",
+  "note": "Student support and life resources",
+  "date_crawled": "2026-06-10T11:20:57.243499",
+  "crawl_depth": 2,
+  "page_count": 1,
+  "content_markdown": "## Page: https://experience.vinuni.edu.vn/student-life-support\n\nThe groundbreaking ceremony on 14 November 2018 marked the first step towards building the physical foundation for the VinUniversity campus, the home of Vietnam’s world-class VinUniversity. The campus is located in Vinhomes Ocean Park in the Gia Lam District, Hanoi, Vietnam, with a total area of 420 hectares. With only a 19% building density and with 117 hectares dedicated to trees and natural areas, the campus will be an ideal setting for self-directed and collaborative learning, peaceful introspection, and inspirational beauty.\nThe landscape, architecture, and interior at VinUniversity deliver the optimal learner-centered environment. Lecture halls and classrooms is designed to enable a highly flexible and adaptable active learning environment, suitable for lectures, interactive and collaborative learning models, and evidence-based methods, such as Team-Based Learning (TBL), Project-Based Learning (PBL), and Simulation-Based Learning (SBL).",
+  "pages": [
+    {
+      "url": "https://experience.vinuni.edu.vn/student-life-support",
+      "parent_url": "seed",
+      "depth": 0,
+      "success": true,
+      "content_markdown": "The groundbreaking ceremony on 14 November 2018 marked the first step towards building the physical foundation for the VinUniversity campus, the home of Vietnam’s world-class VinUniversity. The campus is located in Vinhomes Ocean Park in the Gia Lam District, Hanoi, Vietnam, with a total area of 420 hectares. With only a 19% building density and with 117 hectares dedicated to trees and natural areas, the campus will be an ideal setting for self-directed and collaborative learning, peaceful introspection, and inspirational beauty.\nThe landscape, architecture, and interior at VinUniversity deliver the optimal learner-centered environment. Lecture halls and classrooms is designed to enable a highly flexible and adaptable active learning environment, suitable for lectures, interactive and collaborative learning models, and evidence-based methods, such as Team-Based Learning (TBL), Project-Based Learning (PBL), and Simulation-Based Learning (SBL).",
+      "discovered_links": []
+    }
+  ]
+}

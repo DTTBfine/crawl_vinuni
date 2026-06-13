@@ -1,0 +1,28 @@
+{
+  "source_id": "hanoi_grapevine_home",
+  "url": "https://hanoigrapevine.com/en",
+  "source_name": "Hanoi Grapevine",
+  "domain": "C6",
+  "subdomain": "hanoi_events",
+  "priority": "Medium",
+  "source_type": "html",
+  "authority_level": 3.0,
+  "crawl_frequency": "weekly",
+  "status": "Planned",
+  "output_format": "markdown",
+  "note": "Art/culture event source in Hanoi",
+  "date_crawled": "2026-06-10T11:25:42.043166",
+  "crawl_depth": 2,
+  "page_count": 1,
+  "content_markdown": "",
+  "pages": [
+    {
+      "url": "https://hanoigrapevine.com/en",
+      "parent_url": "seed",
+      "depth": 0,
+      "success": false,
+      "content_markdown": "",
+      "discovered_links": []
+    }
+  ]
+}

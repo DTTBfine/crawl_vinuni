@@ -1,0 +1,28 @@
+{
+  "source_id": "vinuni_student_clubs",
+  "url": "https://experience.vinuni.edu.vn/student-life-support/student-clubs",
+  "source_name": "Experience VinUni - Student Clubs",
+  "domain": "C6",
+  "subdomain": "student_clubs",
+  "priority": "High",
+  "source_type": "html",
+  "authority_level": 5.0,
+  "crawl_frequency": "monthly",
+  "status": "Planned",
+  "output_format": "markdown",
+  "note": "Student clubs, activities, club proposal",
+  "date_crawled": "2026-06-10T11:21:10.842547",
+  "crawl_depth": 2,
+  "page_count": 1,
+  "content_markdown": "## Page: https://experience.vinuni.edu.vn/student-life-support/student-clubs\n\nUniversity clubs are student organizations that promote social interaction, skill development, and extracurricular activities across various interests. They enhance the campus experience and foster connections among students.\nIf you would like to propose opening a new club, please click on the link bellow to fill out your request\nhttps://vinuni.edu.vn/wp-content/uploads/2025/04/SAM-NEW-CLUB-PROPOSAL-FORM\\_V1.pdf\nhttps://vinuni.edu.vn/wp-content/uploads/2025/04/SAM-NEW-CLUB-PROPOSAL-FORM\\_V1.pdf",
+  "pages": [
+    {
+      "url": "https://experience.vinuni.edu.vn/student-life-support/student-clubs",
+      "parent_url": "seed",
+      "depth": 0,
+      "success": true,
+      "content_markdown": "University clubs are student organizations that promote social interaction, skill development, and extracurricular activities across various interests. They enhance the campus experience and foster connections among students.\nIf you would like to propose opening a new club, please click on the link bellow to fill out your request\nhttps://vinuni.edu.vn/wp-content/uploads/2025/04/SAM-NEW-CLUB-PROPOSAL-FORM\\_V1.pdf\nhttps://vinuni.edu.vn/wp-content/uploads/2025/04/SAM-NEW-CLUB-PROPOSAL-FORM\\_V1.pdf",
+      "discovered_links": []
+    }
+  ]
+}

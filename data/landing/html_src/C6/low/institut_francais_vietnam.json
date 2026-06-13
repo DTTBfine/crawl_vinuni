@@ -1,0 +1,28 @@
+{
+  "source_id": "institut_francais_vietnam",
+  "url": "https://www.institutfrancais-vietnam.com",
+  "source_name": "Institut Français Vietnam",
+  "domain": "C6",
+  "subdomain": "cultural_events",
+  "priority": "Low",
+  "source_type": "html",
+  "authority_level": 3.0,
+  "crawl_frequency": "monthly",
+  "status": "Planned",
+  "output_format": "markdown",
+  "note": "Cultural events and language/culture activities",
+  "date_crawled": "2026-06-10T11:30:02.943592",
+  "crawl_depth": 2,
+  "page_count": 1,
+  "content_markdown": "",
+  "pages": [
+    {
+      "url": "https://www.institutfrancais-vietnam.com",
+      "parent_url": "seed",
+      "depth": 0,
+      "success": false,
+      "content_markdown": "",
+      "discovered_links": []
+    }
+  ]
+}
